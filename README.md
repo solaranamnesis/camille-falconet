@@ -8,3 +8,10 @@ French - Plain Text
 French - PDF  
 English - Plain Text  
 English - PDF  
+
+## Dissertation sur la Pierre de la Mère des Dieux.
+
+French - Plain Text  
+French - PDF  
+English - Plain Text  
+English - PDF  
