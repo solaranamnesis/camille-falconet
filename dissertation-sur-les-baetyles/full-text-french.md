@@ -2,6 +2,8 @@
 
 ## Par M. Falconet
 
+### 1722.
+
 Dans le Poeme des Pierres attribue a Orphee, immediatement apres l'article de l'Aimant,* on lit la description d'une Pierre appellee _Ophites_, & d'un nom plus particulier, le vray _Siderites_. Quelque fabuleux que soit ce que le Poete dit de l'Aimant, aussi bien que des autres Pierres, il se surpasse luy-meme dans ce qu'il nous raconte du Siderites. Les proprietez extravagantes qu'il luy attribue, m'ont fait ressouvenir de ce que j'avois remarque sur les Pierres appellees _Bætyles_ & j'ay cru les reconnoitre icy sous un nom different : cela m'a donne envie de relire ce que j'avois autrefois recueilli sur les _Bætyles_, & de vous donner le precis de ce recueil en y ajoutant quelques reflexions. Le sujet est peut-estre encore plus curieux qu'il ne le paroit aux Scavants a qui il est deja connu ; mais ce qui me determine le plus a vous entretenir des merveilles des _Bætyles_, c'est que je crois avoir trouve dans les opinions de ceux qui ont mal entendu l'Histoire Naturelle, l'origine d'un merveilleux qui semble d'abord n'avoir d'autre fondement, que la seule bizarrerie de l'esprit humain livre a la superstition.
 
 *) A l'article intitule [GREEK]
