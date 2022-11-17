@@ -60,6 +60,58 @@ Isidore & Damascius vivoient vers le milieu du sixieme siecle. Il est surprenant
 
 *) Peu avant le temps de Damascius, Ammonius fils d'Hermias, & son disciple l'Iatrosophiste Gesius, soutenoient publiquement a Alexandrie l'eternite du monde contre les Chrestiens. Voyez le Dialogue de Zacharie le Scholastique contre le sentiment de ces Philosophes.
 
-Revenons aux _Bætyles_ : leur regne a este fort long : nous venons de les voir en reputation dans le milieu du sixieme siecle de l'Ere Chrestienne, & le pretendu Orphee les donne pour connus des le temps de la guerre de Troye.
+Revenons aux _Bætyles_ : leur regne a este fort long : nous venons de les voir en reputation dans le milieu du sixieme siecle de l'Ere Chrestienne, & le pretendu Orphee les donne pour connus des le temps de la guerre de Troye. Quoyque cet Auteur qui voudroit se faire passer pour contemporain des derniers Troyens, n'ait* vecu que du temps de Pisistrate, c'en est assez pour regarder ce qu'il dit des _Bætyles_, comme fonde sur une tradition deja recue dans la 65.e Olympiade : mais la connoissance de ces Pierres est presque aussi ancienne que le monde, si nous ajoutons foy au temoignage de Sanchoniathon, que Philon de Byblos son traducteur en Grec, nous donne pour un Auteur anterieur a la guerre de Troye. Il est vray que quelques* Scavants revoquent en doute l'existence meme de Sanchoniathon, & pretendent qu'il ne la doit qu'a Philon de Byblos, qui sous ce nom suppose son propre ouvrage : mais quand leurs raisons prevaudroient a celles d'un* homme de lettres qui croit pouvoir deffendre l'authenticite de Sanchoniathon, il suffiroit de remarquer que Philon de Byblos auteur du second siecle, & Phenicien luy-meme, en forgeant son Histoire sous le nom d'un des plus anciens de ses compatriotes, n'auroit pu donner quelque couleur a sa supposition pour l'accrediter, qu'en ramassant des traditions, soit historiques, soit mythologiques, connues d'ailleurs, & qui n'estoient point dementies par d'autres Historiens. Ainsi donc, ce que je vais citer du Sanchoniathon vray ou faux, touchant les _Bætyles_, doit estre regarde comme une opinion etablie dans l'antiquite la plus reculee.
+
+*) _Ger. Joan. Vossius de Poetis Græcis_ c. 4.
+
+*) Joan. Henric. Ursinus & Dodwel ; pour M. Simon Bibl. Critiq. t. 1. c. 9. il attribue cette supposition a Porphyre ; mais il n'a pas pris garde qu'Athenee qui vivoit plus de 50. ans avant Porphyre, avoit fait mention des [GREEK] de Sanchon. _Deipn._ l. 3. c. 37. Le P. Calmet, Diction. de la Bible au mot _Bethel_, a suivi le sentiment de M. Simon sans l'examiner.
+
+*) M. de la Croze, p. 174. de ses Entretiens sur divers sujets, _etc._ _Cologne_ 1711. 12.° parle de cet Homme de lettres comme d'une tierce personne, quoyqu'il y ait apparence que ce soit luy-meme.
+
+Eusebe dans les fragments qu'il nous a conservez de cet Auteur Phenicien, dit* que le Dieu Cœlus inventa les _Bætyles_ Pierres animees : le Dieu Cœlus, c'est-a-dire le Ciel : rien ne marque mieux l'origine de ces Pierres, qui, felon Damascius, descendoient de l'air dans un globe de feu. Eusebe avoit dit plus haut, que Betul estoit un des quatre enfants de ce Dieu ; d'ou il paroit vraysemblable que Cœlus auroit donne a ces Pierres le nom de son Fils, pour faire honneur a sa memoire, ou par quelque autre raison que nous ignorons. Je ne fais icy cette reflexion, que par rapport a l'origine d'un mot que les Grecs revendiquent : mais nous ferons plus bas cette discussion.
+
+*) _Præparat. Evangel._ l. 1. c. 10. p. 37. _edit. Viger._ [GREEK]
+
+Le reste des anciens Auteurs qui parlent du _Bætyle_, comme Priscien le Grammairien, l'Auteur de l'Etymologicon & Hesychius, n'en donnent gueres d'autre notion, que comme de la pierre qu'avala Saturne. Hesychius* n'en dit que cela precisement ; ce qui a donne occasion au proverbe contre les gens voraces : _vous avaleriez meme un Bætyle_.*
+
+*) Au mot [GREEK]
+
+*) [GREE], Erasme Adag. Chil. 4. centur. 2. Je ne scay d'ou il a pris ce proverbe.
+
+La Pierre que Saturne avala a la place de Jupiter, est fameuse dans la mythologie ; je ne m'y arreteray que pour en observer quelques particularitez moins connues. Agathocles* le Babylonien dit que Rhea prit cette Pierre dans l'Isle de Proconnese : Stephanus de Byzance* rapporte que Saturne l'avala sur le Mont Thaumasius : Pausanias dans ses Arcadiques* dit la meme chose d'apres la tradition des gens du pays, & dans ses Bœotiques,* que ce fut sur le Mont Petrachus. On lit dans les Dionysiaques de Nonnus,* que Saturne trouvant la pierre trop pesante, la vomit : Pausanias* avoit deja rapporte ce fait dans l'endroit de ses Phociques, ou il dit qu'on voyoit cette fameuse Pierre pres du Temple de Delphes : c'estoit une Pierre de mediocre grosseur, qu'on arrosoit tous les jours d'huile, & sur laquelle on mettoit de la laine crue, les jours des feste.
+
+*) Cite par le Scholiaste d'Hesiode sur le vers 485. de la Theogonie.
+
+*) [GREEK] au mot [GREEK]
+
+*) C. 36.
+
+*) C. 41. a la fin.
+
+*) Lib. 25. vers la fin, [GREEK].
+
+*) C. 24. vers la fin.
+
+Priscien & l'Auteur de l'Etymologicon, citez plus haut, disent, comme Hesychius, que la Pierre dont nous venons de parler, s'appelloit _Bætyle_ ; mais ils ajoutent quelques circonstances qui meritent attention.
+
+Priscien* rend le mot _Abbadir_ par celuy du _Bætyle_ qu'avala Saturne, apres avoir dit immediatement auparavant, qu'_Abbadir_ est un Dieu, ce que j'interprete du _Bætyle_ regarde comme anime d'une Divinite. Ce mot _Abbadir_ se trouve corrompu dans les Gloses d'Isidore, ou on lit _Agadir lapis_, mot que Barthius* prend tel qu'il est, & rapporte ridiculement a la langue Allemande. Bochart* avec raison cherche dans la langue Phenicienne l'origine d'_Abbadir_, & croit avec vraysemblance, qu'il signifie une pierre ronde ; ce qui quadre avec la figure decrite par Damascius.
+
+*) _Grammatic_. l. 5.
+
+*) _Adversarior._ l. 16. c. 24. Reins. _variar. lect._ l. 3. c. 17. remarque cette faute de Barthius ; mais il tombe luy-meme dans quelques autres, que j'auray peut-estre ailleurs occasion de relever.
+
+*) Chanaan l. 2. c. 2.
+
+L'Auteur de l'Etymologicon apres avoir dit, selon la restitution de Bochart,* _Bætyle_, Pierre qui se trouve sur le Mont Liban (circonstance conforme a ce que nous avons vu dans l'Extrait de Photius) ajoute qu'on appelle du nom de _Bætyle_, la Pierre que Saturne avala, croyant avaler son fils Jupiter, & que le mot de _Bætyle_ vient du celuy de la peau dans laquelle Rhea avoit emmaillote cette pierre en maniere d'enfant. On contrediroit* vainement cette derivation, sur un pretendu defaut d'analogie : la vraye & la seule raison contre l'origine Grecque, c'est que le mot est Phenicien ; Philon de Byblos l'a retenu dans son texte Grec, aussi bien que celuy d'_Il_, de _Dagon_, & beaucoup d'autres : Bochart* aussi n'en a cherche l'etymologie que dans une langue Orientale : mais je conteste au meme Bochart,* une correction qu'il veut faire au passage de Sanchoniathon rapporte par Eusebe, & que nous avons cite plus haut : il pretend que Philon de Byb. en traduisant de Sanchoniathon, _Bætyles_, _Pierres animees_, trompe par la ressemlance des lettres, a pris le mot qui dans la langue originale signifie _animees_, pour celuy que signifie _ointes_ ou _graissees_. Le but de cette pretendue correction a este de rapporter toute la mythologie des _Bætyles_, a la Pierre que Jacob arrosa d'huile : mais pour etablir ce sentiment dont nour discuterons bientost le fonds, est-il raisonnable de faire dire a Sanchoniathon, que Cœlus fabriqua des Pierres graissees d'huile, comme si cette onction pouvoit entrer dans leur farication ? Nous avons deja vu que le pretendu Orphee anterieur de beaucoup a Philon de Byblos, donne aux _Bætyles_, l'epithete* d'_animez_ ; ansi il faudroit supposer qu'il eut connu le livre de Sanchoniathon, & qu'il eut fait la meme bevue que Philon de Byblos, en traduisant le mot en question. On peut donc assurer que ce n'est pas l'epithete d'_animees_, donnee par meprise a ces Pierres, qui a amene la ridicule propriete qu'on leur attribue ; c'est la propriete elle-meme qui s'est etalie sur une fausse opinion, dont la superstition, comme nous le ferons voir, a trouve le fondement dans un fait fabuleux de l'Histoire Naturelle ; ensuite l'epithete a este donnee a la chose, conformement a l'opinion.
+
+*) Chanaan l. 2. c. 2.
+
+*) [GREEK] : comme [GREEK] _etc._
+
+*) Chanaan l. 2. c. 2.
+
+*) _Ibid._
+
+*) _Titulo Ostrites_ v. 28. [GREEK]
 
 ...
