@@ -4,7 +4,7 @@
 
 ### 21 Avril 1750.
 
-En 1722 je lus une Dissértation sur les Bétyles, où, à l'occasion de ces pierres, je fis mention de plusieurs autres d’une forme singulière, parmi lesquelles je me contentai d'indiquer la grandeur & la configuration de la pierre de la mère des Dieux ; j'entends cette pierre regardée comme le simulacre de la Déesse que les Romains firent venir de Pessinonte, ville de Galatie,* sur ce que les livres Sibyllins consultés avoient déclaré que l'arrivée de cette pierre à Rome opèreroit l'expulsion d'Annibal & des Carthaginois hors de l'Italie.
+En 1722 je lus une Dissértation sur les Bétyles, où, à l'occasion de ces pierres, je fis mention de plusieurs autres d'une forme singulière, parmi lesquelles je me contentai d'indiquer la grandeur & la configuration de la pierre de la mère des Dieux ; j'entends cette pierre regardée comme le simulacre de la Déesse que les Romains firent venir de Pessinonte, ville de Galatie,* sur ce que les livres Sibyllins consultés avoient déclaré que l'arrivée de cette pierre à Rome opèreroit l'expulsion d'Annibal & des Carthaginois hors de l'Italie.
 
 *) Ciceron, que je cite plus bas, dit, _sacra ex Phrygia ascita_. Strabon, _liv. 12_, dit qu'une partie de la Galatie est comprise sous le nom de Phrygie.
 
