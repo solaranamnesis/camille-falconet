@@ -232,4 +232,26 @@ Un Auteur* de reputation qui a donne depuis peu un Dictionnaire d'antiquitez, po
 
 Il faut pourtant avouer qu'il y avoit chez les Grecs, un _Jupiter lapideus_, [GREEK] ; mais il n'a pas plus de rapport aux _Bætyles_, que le Pierre aupres de laquelle, & non par laquelle juroient, selon le decret de Solon, les Magistrats d'Athenes,* appellez par cette raison [GREEK]. Cependant un Commentateur* sur A. Gelle, copie ensuite par d'autres,* nous entasse ces [GREEK], le _Jupiter lapis_, & les _Bætyles_. Ces fautes de jugement ordinaires aux Commentateurs de profession, servent a mieux faire sentir le merite de celuy qui uniquement attache a eclaircir son texte, scait dispenser avec sobriete & avec discernement, les tresors de son erudition.
 
-...
+*) 5. _Meursius Atticar. lection._ lib. 1. c. 6.
+
+*) _Thysius in A. Gell._ l. 1. c. 21.
+
+*) _Servat. Gallæus in Oraculis Sibyll._ p. 486.
+
+Revenons aux _Bætyles_, pour ne les plus quitter. Nous avons vu ceux qui estoient expressement ainsi nommez ; nous avons ensuite parcouru les Pierres qui pouvoient y avoir quelque rapport vray ou faux : il en reste encore quelques-unes qui sans porter le nom de _Bætyles_, non seulement sont de vrays _Bætyles_, mais serviront a nous devoiler la nature de ces Pierres. Sanchoniathon cite par Eusebe* dans le meme endroit ou il est parle des _Bætyles_, dit qu'Astarte trouva une etoile tombee de l'air, & que l'ayant ramassee, elle la consacra dans la ville de Tyr : c'est la traduction litterale du Grec, [GREEK]. Bochart qui traduit, [GREEK], _quam intersectam_, trouve ridicule de faire tuer une etoile : le ridicule est dans sa traduction ; comme si [GREEK] ne signifioit pas _auferre_, aussi bien qu'_interficere_, & que ce ne fut pas meme la sa signification primitive : mais il avoit envie de faire de cette etoile, une espece d'Aigle appellee [GREEK], fonde sur une histoire rapportee par Nonnus.
+
+*) _Chanaan_ lib. 2. c. 2.
+
+Je vous paroitray sans doute encore moins raisonnable que Bochart, quand j'assureray qu'il n'y a rien a changer au mot [GREEK], & que cette etoile prise a la lettre est une vraye Pierre du genre des _Bætyles_ : vous me trouverez tout aussi extraordinaire, quand je vous donneray pour une etoile, la Pierre qui, selon la prediction d'Anaxagore, tomba a Ægospotamos ville de la Chersonese Taurique : mais j'espere en vous exposant le systeme que nous allons developper, vous prouver evidemment cet etrange paradoxe, que certaines etoiles en l'air, estoient des _Bætyles_ allumez, & que ces _Bætyles_ sur la terre, estoient des etoiles eteintes.
+
+Pline* nous parle de la Pierre _Astroites_, dont il dit que Zoroastre celebre les grandes vertus pour les operations magiques. Cet _Astroites_, selon moy, se trouve sous le nom de _Pierre_ simplement, sans autre addition, dans ce qui nous reste des Oracles supposez de Zoroastre : c'est precisement* a la fin de ces fragments, qu'il est recommande d'offrir en sacrifice une _Pierre_, lorsqu'on verra un Demon terrestre s'approcher : en eclaircissant ce point de Theurgie, qui est important pour notre sujet, il paroitra tres vraysemblable que cette Pierre estoit un _Bætyle_. Enfin Porphyre* dans la Vie de Pythagore, dit que ce Philosophe estant arrive en Crete, se fit purifier avec la _Pierre de foudre_, par le Prestre Morgus un des Dactyles Ideens : voila un nom qui commence a devoiler la nature des _Bætyles_ : & je vais demontrer que le _Bætyle_ est une espece de _Pierre de foudre_ : la preuve est evidente ; je la tire de Pline dont le temoignage est formel : il est etonnant qu'aucun de ceux qui ont parle des _Bætyles_, n'ait scu prendre la vraye notion de ces Pierres dans le passage suivant de ce Naturaliste : _Sotacus & alia duo genera fecit Cerauniæ, nigras rubentesque, ac similes eas esse securibus ; per illas quæ nigræ sunt & rotundæ, urbes expugnari & classes, easuqe BETULOS vocari ; qua vero longæ sunt, Ceraunias._*
+
+*) _Natur. Histor._ lib. 37. c. 9.
+
+*) [GREEK]
+
+*) S. 17. [GREEK]
+
+*) _Natural. Histor._ lib. 37. c. 9.
+
+Voicy de nouvelles fables, mais qui coulent d'une autre source : c'est une Philosophie, la plus ancienne peut-estre qu'il y ait au monde, laquelle semble n'avoir entrepris l'explication des Causes Naturelles, que pour nourrir la superstition des premiers hommes : mais la matiere de la discussion, ou je vais m'engager, est si abondante, que je crois devoir la reserver pour une seconde partie.
