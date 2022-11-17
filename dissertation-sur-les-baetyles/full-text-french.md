@@ -114,4 +114,120 @@ L'Auteur de l'Etymologicon apres avoir dit, selon la restitution de Bochart,* _B
 
 *) _Titulo Ostrites_ v. 28. [GREEK]
 
+Bochart,* apres la correction dont je viens de parler, pour establir une parsaite conformite entre les _Bætyles_ & la Pierre de Jacob, n'oublie pas de rappeller l'etymologie du mot _Bætyle_ proposee* deja par plusieurs Scavants, qui tirent ce mot de celuy de _Bethel_, nom* que Jacob donna a l'endroit ou il avoit fait ce songe mysterieux dont l'Ecriture parle, aussi bien qu'a la Pierre qui luy avoit servi de chevet pendant son sommeil, & qu'a son reveil il arrosa d'huile. J'avoue que ce mot qui signifie _Maison de Dieu_, convient parfaitement a l'idee qu'on avoit des _Bætyles_ : mais cette denomination meme nous fournit un nouveau titre contre la correction de Bochart que j'ay combattue ; puisque rien n'est plus consequent, que de donner l'epithete d'_animee_, a une Pierre qui sert de domicile a une Divinite.
+
+*) Chanaan, l. 2. c. 2.
+
+*) V. cy-apres la note 1. p. 523.
+
+*) Genese c. 28. v. 12-19.
+
+Ceux* qui sont assez difficiles pour contester que le _Bethel_ de Jacob ait pu estre connu a Sanchoniathon, malgre le commerce que d'autres* supposent que cet Historien a eu avec avec Gedeon, auront recours au Prince _Betul_, nom de meme signification que _Bethel_, & diront que Cœlus son pere, ainsi que j'ay deja oserve, a nomme ces Pierres _Bætyles_ en l'honneur de son Fils. Quelque epaisses que soient les tenebres, dont les faits de ces temps reculez sont enveloppez, il peut y avoir eu reellement un Prince _Betul_, comme l'on convient de l'existence de son frere [GREEK], ou Saturne appelle _Il_ dans ce meme endroit de l'Historien Phenicien.
+
+*) Comme Vandale, _Dissertat. super Sanchoniat. ad calcem Dissert. super Aristea._
+
+*) Comme M. Huet, _Demonst. Evangel. Propos. 4._ c. 2-3.
+
+Hazarderay-je une conjecture, pour indiquer encore une autre origine ? les mots _Abbadir_ & _Bætyle_, quelque differents qu'ils soient en apparence, ont cependant presque les memes lettres radicales : la frequente permutation des Muettes Δ & T, & des Liquides Λ & P, les fait regarder comme les memes lettres dans toutes les langues.
+
+J'en aurois trop dit sur le nom, si la chose meme n'en dependoit. Bochart fonde sur son etymologie, aussi bien que sur sa pretendue correction, & la pluspart* des Scavants avec luy, n'hesitent pas a prononcer que les Payens ont emprunte leurs _Bætyles_ du _Bethel_ de Jacob : mais quand la correction de Bochart ne seroit pas vicieuse, & que j'admettrois l'etymologie, quelle conformite d'ailleurs pourroit-on trouver entre les _Bætyles_ & la Pierre du Patriarche ? elle me paroit a peu pres la meme que celle que certains* Auteurs ont imaginee entre la chaine d'or decrite par Homere, & l'echelle que Jacob vit en songe.
+
+*) Jos. Scaliger, G. J. Vossius, Th. Reines. H. Grotius, Selden, Huet, Heidegg. Witsius, _etc._
+
+*) _Mœbius ex Taubmanno, in dedicat. libri sui de Oraculis._
+
+La Pierre de Jacob devoit estre d'une grosseur assez considerable & d'une figure a peu pres quarree ; puisqu'il la dressa* en forme de colomne : elle estoit par consequent immobile, & ne pouvoit* avoir d'autre usage que celuy d'un autel. Les _Bætyles_ au contraire, estoient d'une grosseur tres mediocre ; leur figure estoit ronde, & ils estoient portatifs ; de plus ils avoient des canelures gravees sur leur surface, & selon l'opinion commune, ils descendoient du Ciel : circonstances qu'il ne faut point perdre du vue, & par ou les _Bætyles_ sont caracterisez de maniere a n'avoir rien de commun, non seulement avec la Pierre de Jacob, mais encore avec toutes les autres Pierres* qui servoient au culte des Payens. Ce seroit parmi ces dernieres, celles* qu'on trouve si frequemment dans les Auteurs Sacrez & Profanes, arrosees d'huile, & cournnees de fleurs, qui auroient quelque ressemblance avec la Pierre de Jacob. Scaliger* sur Eusebe, nous rapporte un passage Hebreu, ou il est dit que Dieu prit en haine la Pierre de Jacob ; parce que les Chananeens en firent l'objet de leur idolatrie : c'est sans doute ce qui* fit changer le nom du lieu appelle _BETHEL_, _Maison de Dieu_, en celuy de _BETH-AWEN_, _Maison du mensonge_. On voit la simplement que les Chananeens faisoient de la Pierre de Jacob, le meme usage que faisoit en general de semblables Pierres, le commun des Payens. On peut meme tirer de-la l'origine de la superstition des Juifs a l'egard du [GREEK] dont il est parle dans le Levitique,* ou les Idoles & les Pierres dressees, leur sont egalement deffendues : mais est-il bien sur que l'idolatrie des autres Nations ait commence par cette perverse imitation des Chananeens ? Avant Jacob il y avoit eu des Idolatres & des Pierres, aussi bien que d'autres corps, soit animez, soit inanimez, qui faisoient l'objet du culte des Chaldeens. Ce seroit donc chez ces peuples qu'il faudroit chercher l'origine de l'idolatrie des autres Nations ; puisque c'est de leur sein qu'elle se repandit sur toute la terre, avant la vocation d'Abraham, & bien long-temps avant la Loy de Moyse.
+
+*) _Erexit in titulum. Genes._ c. 28. v. 18.
+
+*) En effet cette Pierre elevee devint un autel, selon S. Augustin _de Civit. Dei_ lib. 16. c. 38.
+
+*) Ainsi Marsham p. 55. edit. _Fol._ se trompe en disant que Sanchoniathon appelle [GREEK], les premieres Statues qui furent adorees. Le meme Marsham suit en tout, le sentiment de Bochart.
+
+*) Voyez-en les exemples ramassez dans Duportus _in Theoph. charact._ sur ces mots du c. 16. [GREEK]. Dans Dought. _Analect. sacr. Excurs. 17. in Genesin_ ; & dans Broukhus. _in Tibull._ l. 1. _Eleg._ 1. v. 15-16.
+
+*) _Animadvers. in Chronol. Euseb._ p. 216. & d'apres luy Bochart qui nous rapporte le texte Hebreu, & y ajoute la traduction. _Chan._ l. 2. c. 2.
+
+*) Jos. Scaliger _Not. in fragment. Veter. Græc._ p. 24 _ad calcem operis de Emend. Temp._ & G. J. Voss. _de Theolog. Gentil._ l. 6. c. 39. Le P. Calmet dans son Dicton. de la Bible, rapporte un peu autrement la cause de ce changement de nom. Voyez Hadr. Reland dans sa Palestine illustree, T. 2. aux mots _Bethaven_ & _Bethel_.
+
+*) C. 26. v. 1.
+
+J'admire les travaux de ces grands hommes* qui ont employe la plus vaste erudition, a rechercher les sources de la mythologie & des superstitions du Paganisme, dans l'histoire & dans la Religion des Juifs : souvent meme c'est encore plus par une sagacite singuliere, que par une lecture infine & par une profonde connoissance des langues, qu'ils entrevoyent des rapports dont les hommes ordinaires sont etonnez. Je scay que les premiers* Peres de l'Eglise se crurent obligez de faire valoir ces memes idees, contre les Payens dont ils estoient environnez, dans le dessein de mortifier leur orgueil, & de leur faire reconnoitre la corruption de leur culte en leur en decouvrant l'origine ; mais je ne scay si la doctrine qu'ils preschoient, & l'exemple des vertus qu'ils pratiquoient, n'ont pas este plus efficaces que cette maniere de raisonner, contre des Philosophes aussi instruits que ceux qu'ils avoient a combattre. Aujourd'huy de pareils secours sont encore moins utiles a la Religion : il s'est eleve dans ce siecle un genre de Philosophes plus dangereux que les anciens : en hazardant des preuves si douteuses, & d'ailleurs si peu importantes, on doit craindre de fournir a ces nouveaux Philosophes, le leger avantage qu'on croit procurer a la bonne cause, qui en a de si grands & de si incontestables par les endroits essentiels. L'Esprit Philosophique qui a travaille si heureusement pour mettre la verite de notre Religion dans tout son jour, quand il ne trouvera pas un fondement reel a ce rapport du culte des Payens avec celuy des Juifs, expliquera aisement ce phenomene de ressemblance, sans allusion forcee, en le rappellant a sa propre cause : c'est l'uniformite de l'homme avec luy-meme, dans les pays & dans les temps les plus eloignez, sur l'idee d'une Divinite, & sur les points les plus generaux d'un culte que tous croyent egalement luy devoir. _Adeo* ista toto mundo consensere, quanquam discordi & sibi ignoto_.
+
+*) Selden, Bochart, Huet, Prideaux, _etc._
+
+*) C'est ce que Pline dit de la Magie, a la fin du c. 1. du 30e. l. de son Histoire : ce qu'on peut dire de la Religion avec bien plus de raison.
+
+Il me reste une mention des _Bætyles_, dans un Auteur peu connu, parce qu'il est demeure Manuscrit : c'est un Joseph Chrestien* du 5e. siecle, different de Joseph de Tiberiade : plusieurs Scavants citent son _Hypomnesticum_ : Thomas Gale, qui en avoit une copie tiree sur le MS. de la Bibliotheque de Cambridge, en rapporte un passage assez long dans ses Notes* sur le livre des Mysteres de Iamblique. Dans ce passage, Joseph apres avoir parle de plusieurs especes de divination, ajoute : [GREEK]. Je ne scay quel sens donner a ces mots, si l'on n'y fait quelque correction : je croirois qu'il faut lire [GREEK] ; _Bætyles des temples, genre de divination, qui se fait par le moyen de certains Pierres enchassees dans les murailles, & qui de-la rendent des Oracles_. Nous avons vu dans l'extrait de Photius, que le Medecin Eusebe plantoit son _Bætyle_ dans le mur, quand il vouloit l'interroger [GREEK].* Si l'on veut conserver dans ce passage, les mots [GREEK], cela signifiera que ces Pierres rendoient des Oracles par la vertu des lettres gravees sur leur surface : Damascius,* ainsi que nous avons remarque, appelloit _lettres_, ces lignes raboteuses qu'Orphee decrit sous le nom de _rides_ ; mais pour parler plus surement, il faudroit voir le MS. Il n'y a a la Bibliotheque du Roy, qu'un fragment de l'ouvrage de ce Joseph, & dans ce fragment, le passage dont il est question, ne se trouve point.
+
+*) V. G. Cave _Scriptor. Ecclesiast. Histor. Sæcul. Nestorian._
+
+*) P. 215.
+
+*) _Phot. Biblioth._ p. 1063.
+
+*) _Ibid._
+
+Outre les Pierres appellees expressement _Bætyles_, ou caracterisees de la maniere que nous avons observee, on en trouve dans les Auteurs, quelques autres qui, sans estre nommees, pourroient estre soupconnees de la meme espece. Les Pierres, par exemple, qu'Elagabale transporta a Rome, appellees par Lampridius, _Lapides Divi_, sont regardees par Saumaise* comme des _Bætyles_ ; mais ces _Bætyles_ n'ont d'autre titre que la correction de ce Critique qui veut qu'on lise _vivi_, au lieu de _Divi_. Saumaise d'ailleurs n'entend pas bien ce passage, pour n'avoir pas pris garde qu'il y manque un mot necessaire : Tristan* supplee ce mot, & se trompe* en meme temps, lorsqu'il pretend que les Pierres en question soient celles qui estoient a Phares ville d'Achaie, pres de la Statue de Mercure : mais j'abandonne les _Lapides Divi_ de Lampridius, a des conjectures plus heureuses.
+
+*) _Not. in Lamprid._ p. 181.
+
+*) Comment. Historiq. t. 2. p. 324.
+
+*) V. les notes de G. Cuper _in Lactant. de mortibus Persecut._ p. 156-158.
+
+Je serois mieux fonde a faire passer pour _Bætyles_, les Pierres* que l'on consacroit dans le Temple de Minerve Chalcidique a Sparte ; elles en avoient du moins la figure & le mouvement. Le Plutarque auteur du livre des Fleuves, dit qu'on les prenoit dans le fleuve Eurotas ; que leur figure ressembloit a celle d'un casque ; qu'au son de la trompette elles s'elevoient sur l'eau ; & qu'au nom des Atheniens, sitost qu'il estoit prononce, elles se replongeoient au fond du fleuve : circonstances d'ou elles avoient recu le nom de [GREEK]. La fable de ce mouvement ridicule est manifestement tiree de l'aventure du Prince Eurotas, dont il est parle au meme endroit, & elle n'a rien de commun avec celle du mouvement spontanee des _Bætyles_ ; mais cette figure de casque leur convient parfaitement, ainsi qu'on peut le reconnoitre par l'inspection meme de la Pierre, que je prouveray avoir este le _Bætyle_ des Anciens.
+
+*) _Plutarch. de Fluviis. S. Eurotas._
+
+Il y a certaines autres Pierres celebres dans la Mythologie, qui, bien qu'elles ne soient pas de vrays _Bætyles_, doivent selon moy en estre regardez comme des especes, par rapport a leur origine commune : ce sont les Pierres tombees du Ciel ; je ne veux pas dire les pluyes de pierres si souvent rapportees parmi les prodiges : j'entends parler uniquement de ces Pierres singulieres qu'on croyoit envoyees du Ciel par quelque Divinite,qui vouloit se manifester, & estre adoree sous cette figure.
+
+Telle estoit la Pierre decrite par Herodien,* adoree a Emese, comme representant le Soleil, dont Elagabale, dans sa jeunesse, estoit le Prestre : la Pierre se voit dans plusieurs* medailles de cet Empereur. On estoit deja accoutume a adorer le Soleil sous cette figure : les Pierres* tombees de cet Astre selon la prediction d'Anaxagore, avoient recu les honneurs divins a Abyde & a Potidee. Je feray voir plus bas que parmi ces Pierres on trouve une espece de _Bætyle_.
+
+*) _Historiar._ lib. 3. c. 3.
+
+*) Une des Ephesiens, Vaillant _Numism. Imperat. a Pop. Græc. etc. Edit. altera._ p. 127. deux autres, Vaillant _Numism. Imperat. præstant. Edit. altera._ t. 2. p. 285-288.
+
+*) _Natural. Histor._ l. 2. c. 58 & _Plutarch. in Lysandri vita._
+
+La Pierre de Venus Paphiene, estoit a peu pres de la meme figure que celle du Soleil a Emese : elle est representee* aussi sur plusieurs medailles : les Auteurs* qui en parlent comme d'une Pierre d'une espece inconnue, ne disent pourtant pas qu'elle fut tombee du Ciel ; mais sa figure pyramidale comme celle du Soleil, me la fait croire de la meme nature, aussi bien que la Pierre d'Apollon Carinus,* celle de Jupiter Milichius,* & peut-estre beaucoup d'autres dont je prouveray dans la suite, l'affinite avec les _Bætyles_, selon les opinions recues par les Anciens, dans l'Histoire Naturelle.
+
+*) Sur une d'Eurypile, Spanh. _de præstant. Numism. Dissert._ 8e. t. 1. p. 505. De Drusus, Patin _Imperat. Rom. Numism. ex ære mediæ & minim formæ_, p. 80. De Trajan, Tristan _Comment. Histor._ t. 1. p. 419. De Caracalla, _Id. ibid._ t. 2. p. 220.
+
+*) _Tacit. Histor._ lib. 2. c. 2. & _Maxim. Tyr. Dissert._ 38.
+
+*) _Pausan. Attic._ lib. 1. c. 44.
+
+*) _Idem Corinth._ lib. 2. c. 9.
+
+La Pierre de la Mere des Dieux estoit d'une espece singuliere, & paroit n'avoir aucun rapport avec celles dont je viens de parler ; mais elle* estoit tombee du Ciel ; elle estoit* d'une grandeur mediocre, puisqu'elle se portoit aisement a la main ; sa couleur* estoit noire, sa figure, quoyqu'irreguliere, avoit quelque chose de symmetrise : au milieu de toutes ses inegalitez, on trouvoit une apparence de bouche ; ce qui donna l'idee d'enchasser la Pierre a l'endroit de la bouche, dans le visage de la Statue de la Deesse. Je ne croirois pas estre temeraire en assurant que nous avons encore aujourd'huy la Pierre de la Mere des Dieux, dans ces Pierres figurees, que les Naturalistes appellent _Hysterolithes_ : peut-estre meme que par rapport a une ressemblance qui n'est guere eloignee de celle de la bouche, le culte de la Pierre fut imagine : & on ne crut point trouver de symbole plus convenable que cette Pierre ainsi figuree, pour representer une Deesse, qui selon les Poetes estoit la Mere des Dieux & des hommes, & qui selon les Philosophes, estoit la Nature meme, source seconde de tout ce qui paroit dan l'Univers.
+
+*) _Herodian. Histor._ lib. 1. c. 11. & _Appian. Annibalic._
+
+*) _Tit. Liv._ lib. 29. S. 14.
+
+*) _Arnob. advers. Gent._ lib. 7. & _Prudent. Hymn. in Roman._
+
+Je sens que je m'ecarte beaucoup ; mais je ne scaurois encore venir au point capital de ma Dissertation, sans avoir examine le sentiment de ceux qui pretendent que le _Jupiter Lapis_ employe dans la formule d'un serment ordinaire aux Romains, est le _Bætyle_ qu'avala Saturne. Ciceron,* A. Gelle,* Apulee* se servent de la formule, _Jovem lapidem jurare_ ; mais Festus* nous rend raison de cette expression, _Lapidem, silicem tenebant juraturi per Jovem, hæc verba dicentes_ : _si sciens fallo, tum me Diespiter salva urbe arceque ejiciat, ut ego hunc lapidem_ : d'ou l'on doit conclurre que _Jovem lapidem jurare_ est une locution elliptique, & qu'apres le mot _lapidem_ il faut sous-entendre le participe _tenens_. Les exemples detaillez qu'on trouve dans Polybe* & dans Plutarque* de la maniere dont se faisoit ce serment, ne permettent pas d'en douter.
+
+*) _L. 7. Epistol. 12. ad Trebat._
+
+*) _Noct. Atticar._ lib. 1. c. 21.
+
+*) _De Deo Socratis._
+
+*) _De Verbor. Signific. Lapidem, Silicem, etc._
+
+*) _Histor._ lib. 3. parlant du 3e. traite des Rom. & des Carthaginois.
+
+*) Dans lavie de Sylla, parlant du serment que Marius fit faire a Cinna.
+
+Un Auteur* de reputation qui a donne depuis peu un Dictionnaire d'antiquitez, pour authoriser le pretendu _Jupiter Lapis_, nous rapporte de la Chronique d'Eusebe* un _Lapis_ qui a regne en Crete : s'il avoit pris la peine de voir le texte Grec, il auroit trouve [GREEK], mot qui certainement n'a pas este fait sur le Latin _lapis_ ; puisque ce [GREEK] regnoit en Crete long-temps avant la guerre de Troye. On auroit tort de souhaiter que cet Auteur eut compris dans son livre, les Antiquitez Grecques ; a juger par cet echantillon, nous devons luy estre obligez de n'avoir pas fait cette entreprise.
+
+*) _Sam. Puiscus Lexicon Antiq. Roman._
+
+*) _Anno a nato Abrah._ 554. selon l'edition de Scaliger.
+
+Il faut pourtant avouer qu'il y avoit chez les Grecs, un _Jupiter lapideus_, [GREEK] ; mais il n'a pas plus de rapport aux _Bætyles_, que le Pierre aupres de laquelle, & non par laquelle juroient, selon le decret de Solon, les Magistrats d'Athenes,* appellez par cette raison [GREEK]. Cependant un Commentateur* sur A. Gelle, copie ensuite par d'autres,* nous entasse ces [GREEK], le _Jupiter lapis_, & les _Bætyles_. Ces fautes de jugement ordinaires aux Commentateurs de profession, servent a mieux faire sentir le merite de celuy qui uniquement attache a eclaircir son texte, scait dispenser avec sobriete & avec discernement, les tresors de son erudition.
+
 ...
