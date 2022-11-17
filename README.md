@@ -11,7 +11,7 @@ English - PDF
 
 ## Dissertation sur la Pierre de la Mère des Dieux.
 
-French - Plain Text  
+[French - Plain Text](dissertation-sur-la-pierre-de-la-mere-des-dieux/full-text-french.md)  
 French - PDF  
 English - Plain Text  
 English - PDF  
