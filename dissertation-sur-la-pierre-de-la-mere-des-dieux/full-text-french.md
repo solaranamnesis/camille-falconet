@@ -1,4 +1,4 @@
-# Disseration sur la Pierre de la Mere des Dieux.
+# Disseration sur la Pierre de la Mère des Dieux.
 
 ## Par M. Falconet.
 
