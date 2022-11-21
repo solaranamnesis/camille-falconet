@@ -93,9 +93,21 @@ C'est dans ce même sens qu'il faut prendre le mot _Hystera_ que St. Irénée* e
 
 Rien ne convenoit donc mieux à une divinité regardée comme la Nature même, que le titre de mère des Dieux ; aussi le voit-on communément sur les médailles & dans les inscriptions, quelquefois _magna mater_,* _mater magna_,* sans addition : bien plus _Ma_,* chez les Lydiens, étoit le nom de _Rhea_, comme Mère par excellence ; sur quoi il est assez curieux d'observer que tous les mots employés pour dire mère* chez presque tous les peuples du monde entier, ont la lettre _m_ pour radicale, comme une labiale que les enfans prononcent dès qu'ils commencent à balbutier.
 
+*) Au dessous de la statue de la Déesse. _Boissard, l. 6, pl. 37_.
+
+*) _Inscrip. Gruter. p. 1065, 8_, & _M. Gudii_, p. 20-1.
+
+*) _Stephan. de urbibus voca_ [GREEK].
+
+*) M. de la Condamine, dans sa relation de la rivière des Amazones, _p. 56_, observe que les mots _Abba_ ou _Papa_ & _Mama_ sont communs à un grand nombre de nations d'Amérique, quoique leur langage soit d'ailleurs très-différent.
+
 Je trouve dans un monument rapporté par Pausanias, une épithète très-convenable à la qualité de mère. Cet* auteur dit que, sur le mont Sipyle, il y avoit un temple de la mère Plastène : je rendrois volontiers ce mot par le _fabricator_ de St. Iréné, ou le [GREEK] de St Epiphane. Kuhnius, dernier éditeur de Pausanias, ne fait aucune remarque sur ce mot oublié par tous les lexicographes : rien de plus naturel que sa formation, [GREEK], comme [GREEK], _etc._
 
+*) _L. 5, c. 13_, [GREEK].
+
 A l'occasion du mont Sipyle,* nom que portoit aussi la ville voisine, je me contenterai de dire que c'étoit sur cette montagne où le même Pausanias dit ailleurs, qu'on voyoit la plus ancienne statue de la Déesse, celle apparemment du temple dont je viens de parler d'après lui, quoiqu'il ne le dise pas. J'ajoûterai un fait du nombre des faits merveilleux qui sont la matière d'un traité attribué à Aristote.* Près du mont Sipyle il se forme une pierre qui donne la piété & l'amour des fils pour leur père à ceux qui, l'ayant trouvée, la portent au temple de la Déesse ; je soupçonnerois que ce seroit un hystérolithe, si le texte, peut-être corrompu, ne lui donnoit une figure cylindrique.
+
+*) Tantalis, Sipyle & trois autres villes bâties successivement au même lieu, toutes cinq abîmées par des tremblemens de terre. _Voy. Pline, liv. 5, chap. 29_. Magnésie, qui prit ensuite leur place, fut très-fort endommagée par les tremblemens suivans. Le mont Sipyle & Magnésie sont près de Smyrne vers l'embouchûre de l'Hermus ; Cellarius, _geograph. antiq._ se méprend très-fort quand il les place presque à la source de ce fleuve dans sa carte de l'Asie mineure.
 
 Le mont Dindyme me fourniroit aussi une assez ample matière : il me suffira de remarquer que, selon Ptolémée,* toutes les montagnes qui s'étendent presque depuis la source du fleuve Sagaris jusqu'à la Propontide, portent le nom de _Dindyme_ ; que Pessinonte est au pied de la partie orientale ; qu'à l'occidentale, sur une des deux collines appelées _Arctos_ & _Lobrinus_, qui ne sont que des croupes du Dindyme près de Cyzique, est un temple de la Déesse bâti par les Argonautes ; & que dans le sein de la colline Arctos, il y a des antres où se célébroient les mystères de Cybèle & d'Attis, des Tauroboles même, selon l'interprétation que donne Isaac Vossius* d'un endroit de Properce.
 
