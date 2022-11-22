@@ -1,5 +1,3 @@
-â  æ Æ à ç  è  É   é  ê  ë   î  ï  ô  œ  ù  û
-
 # Dissertation sur les Bætyles.
 
 ## Par M. Falconet
