@@ -6,15 +6,15 @@
 
 Dans le Poème des Pierres attribué à Orphée, immédiatement après l'article de l'Aimant,* on lit la description d'une Pierre appelée _Ophitès_, et d'un nom plus particulier, le vrai _Sideritès_. Quelque fabuleux que soit ce que le Poète dit de l'Aimant, aussi bien que des autres Pierres, il se surpasse lui-même dans ce qu'il nous raconte du Sideritès. Les propriétés extravagantes qu'il lui attribué, m'ont fait ressouvenir de ce que j'avois remarqué sur les Pierres appelées _Bætyles_ et j'ai cru les reconnaître ici sous un nom différent : cela m'a donné envie de relire ce que j'avois autrefois recueilli sur les _Bætyles_, et de vous donner le précis de ce recueil en y ajoutant quelques réflexions. Le sujet est peut-être encore plus curieux qu'il ne le paraît aux Savants à qui il est déjà connu ; mais ce qui me détermine le plus à vous entretenir des merveilles des _Bætyles_, c'est que je crois avoir trouvé dans les opinions de ceux qui ont mal entendu l'Histoire Naturelle, l'origine d'un merveilleux qui semble d'abord n'avoir d'autre fondement, que la seule bizarrerie de l'esprit humain livré à la superstition.
 
-*) A l'article intitulé [GREC]
+*) A l'article intitulé Ὀςρίτνς.
 
 Voici d'abord ce que* dit le faux Orphée : Apollon donna au Troyen Helenus le vrai* _Sideritès_, que d'autres appellent _Ophitès_, Pierre qui a le don de la parole : cette Pierre est un peu raboteuse, elle est dure, pesante et noire, et* a des rides qui s'étendent circulairement sur sa surface. Quand Helenus voulait employer la vertu de cette Pierre, il s'abstenait pendant 21. jours du lit conjugal, des bains publics, et de la viande des animaux ; ensuite il faisait plusieurs sacrifices, il lavait la Pierre dans une fontaine, l'enveloppait précieusement, et la portait dans son sein : après cette préparation qui rendait la Pierre animée, pour l'exciter à parler, il la prenait à la main, et faisait semblant de vouloir la jeter ; alors elle rendait un cri semblable à celui d'un enfant qui désire le lait de sa nourrice : Helenus profitant de ce moment interrogeait le Pierre sur ce qu'il voulait savoir, et en recevait des réponses certaines : c'est sur ces réponses qu'il prédit la ruine de Troy sa patrie.
 
 *) Ibid.
 
-*) C'est ainsi qu'il faut lire, et non [GREC], qu'on lit dans le texte : le génitif [GREC] qui se trouvé au ver 46e. détermine la vraie leçon.
+*) C'est ainsi qu'il faut lire, et non Σιδηρῖπς, qu'on lit dans le texte : le génitif Σιδηρῖταο qui se trouvé au ver 46e. détermine la vraie leçon.
 
-*) [GREC]. v. 20. et 21.
+*) Αμφἰ δἑ μιν κύκλω πρἱ τ᾽ ἀμφἱ τε πανθοτεν ἶνες Εῗκελοι ῥυτίδεαπ ἐπιχἁβδην ταvὐοvται. v. 20. et 21.
 
 J'ai honte de vous rapporter de pareilles fadaises ; quel autre nom donner à cela ? Mais Photius cet Écrivain grave et judicieux, n'a pas dédaigné de nous en conserver de la même force, dans son extrait de la Vie d'Isidore par Damascius. La ressemblance de ce que je trouvé touchant les _Bætyles_ dans cet extrait, avec ce que je viens de citer d'Orphée, m'engage à rapporter ici tout de suite ce que dit Photius ; quoique depuis Orphée, beaucoup d'autres Auteurs plus anciens que Photius, ayant fait mention de ces Pierres fabuleuses.
 
