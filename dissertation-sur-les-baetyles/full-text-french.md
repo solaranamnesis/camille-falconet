@@ -22,9 +22,9 @@ Photius* nous instruit donc avec un détail assez circonstancié, de ce que Dama
 
 *) Biblioth. cod. 242. p. 1047. 1062. et 1063. édit. A. Schotti.
 
-*) _Ibid._ p. 1063. [GREC]
+*) _Ibid._ p. 1063. χἁμματα ὀν τδ λἱθω γεχαμμἑνα.
 
-*) _Ibid._ p. 1063. [GREC]
+*) _Ibid._ p. 1063. Φωντιὑ ἀφἱει λεπτοδ συρἱσματοσ, τιὒ ἑρμηἱευσεν ὁ Εὐσἑβιοσ.
 
 *) _De Divinat. l. 3. c. 17._ où il rapporte très infidèlement le texte d'Orphée sans nommer cet Auteur, ajoutant un mot de celui de Jean Tzetzès, Chil. 6. Hist. 65. et non 57. qui n'est que l'extrait de celui d'Orphée.
 
