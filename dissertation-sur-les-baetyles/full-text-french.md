@@ -34,7 +34,7 @@ Achevons ce qui regarde les autres singularités des _Bætyles_ rapportées par 
 
 *) _Photius, ibid._ p. 1047.
 
-*) _Ibid._ [GREC]
+*) _Ibid._ Διἁ τῧ ἀἑροσ κινὀυμενοι.
 
 *) _Ibid._ p. 1063. où Photius dit [GREC], et que Schott traduit mal, _alium alii incumbere_ : [GREC] est là peur [GREC]
 
