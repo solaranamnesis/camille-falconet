@@ -66,7 +66,7 @@ Revenons aux _Bætyles_ : leur règne a este fort long : nous venons de les voir
 
 *) _Ger. Joan. Vossius de Poetis Græcis_ c. 4.
 
-*) Joan. Henric. Ursinus et Dodwel ; pour M. Simon Bibl. Critiq. t. 1. c. 9. il attribue cette supposition à Porphyre ; mais il n'a pas pris garde qu'Athénée qui vivait plus de 50. ans avant Porphyre, avait fait mention des [GREC] de Sanchon. _Deipn._ l. 3. c. 37. Le P. Calmet, Diction. de la Bible au mot _Bethel_, a suivi le sentiment de M. Simon sans l'examiner.
+*) Joan. Henric. Ursinus et Dodwel ; pour M. Simon Bibl. Critiq. t. 1. c. 9. il attribue cette supposition à Porphyre ; mais il n'a pas pris garde qu'Athénée qui vivait plus de 50. ans avant Porphyre, avait fait mention des Φοινικικα` de Sanchon. _Deipn._ l. 3. c. 37. Le P. Calmet, Diction. de la Bible au mot _Bethel_, a suivi le sentiment de M. Simon sans l'examiner.
 
 *) M. de la Croze, p. 174. de ses Entretiens sur divers sujets, _etc._ _Cologne_ 1711. 12.° parle de cet Homme de lettres comme d'une tierce personne, quoiqu’il y ait apparence que ce soit lui-même.
 
