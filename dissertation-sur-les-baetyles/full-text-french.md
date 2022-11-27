@@ -78,19 +78,19 @@ Le reste des anciens Auteurs qui parlent du _Bætyle_, comme Priscien le Grammai
 
 *) Au mot Βαἱτυλοσ, οὕτωσ ἐκαλοῖτο ὁ δοθεῖσ λἱθοσ τῳρ Κρὁνῳ αἰπ᾽ Διὁσ.
 
-*) [GREE], Erasme Adag. Chil. 4. centur. 2. Je ne çay d'où il a pris ce proverbe.
+*) Καἰ Βαἱτυλον αὒ καταπἱνοισ, Erasme Adag. Chil. 4. centur. 2. Je ne çay d'où il a pris ce proverbe.
 
 La Pierre que Saturne avala à la place de Jupiter, est fameuse dans la mythologie ; je ne m'y arrêterai que pour en observer quelques particularités moins connues. Agathocles* le Babylonien dit que Rhéa prit cette Pierre dans l'Isle de Proconnése : Stephanus de Byzance* rapporte que Saturne l'avala sur le Mont Thaumasius : Pausanias dans ses Arcadiques* dit la même chose d'après la tradition des gens du pays, et dans ses Bœotiques,* que ce fut sur le Mont Petrachus. On lit dans les Dionysiaques de Nonnus,* que Saturne trouvant la pierre trop pesante, la vomit : Pausanias* avait déjà rapporté ce fait dans l'endroit de ses Phociques, où il dit qu'on voyait cette fameuse Pierre près du Temple de Delphes : c'estoit une Pierre de médiocre grosseur, qu'on arrosait tous les jours d'huile, et sur laquelle on mettait de la laine crue, les jours des feste.
 
 *) Cité par le Scholiaste d'Hésiode sur le vers 485. de la Théogonie.
 
-*) [GREC] au mot [GREC]
+*) Εθινικἀ au mot Θαυμἁσιον ὄροσ.
 
 *) C. 36.
 
 *) C. 41. à la fin.
 
-*) Lib. 25. vers la fin, [GREC].
+*) Lib. 25. vers la fin, φὁρτον ἀποπτὑων.
 
 *) C. 24. vers la fin.
 
@@ -108,13 +108,13 @@ L'Auteur de l'Étymologicon après avoir dit, selon la restitution de Bochart,* 
 
 *) Chanaan l. 2. c. 2.
 
-*) [GREC] : comme [GREC] _etc._
+*) Βαἰτη, Βαἰτυλοσ : comme στὀμα, στωμὑλοσ, χρἑμησ, χρεμὑλοσ, _etc._
 
 *) Chanaan l. 2. c. 2.
 
 *) _Ibid._
 
-*) _Titulo Ostrites_ v. 28. [GREC]
+*) _Titulo Ostrites_ v. 28. λᾶαν... ἔμπνοον ἔρδεν.
 
 Bochart,* après la correction dont je viens de parler, pour établir une parfaite conformité entre les _Bætyles_ et la Pierre de Jacob, n'oublie pas de rappeler l'étymologie du mot _Bætyle_ proposée* déjà par plusieurs Savants, qui tirent ce mot de celui de _Bethel_, nom* que Jacob donna à l'endroit où il avait fait ce songe mystérieux dont l'Écriture parle, aussi bien qu'à la Pierre qui lui avait servi de chevet pendant son sommeil, et qu'à son réveil il arrosa d'huile. J'avoué que ce mot qui signifie _Maison de Dieu_, convient parfaitement à l'idée qu'on avait des _Bætyles_ : mais cette dénomination même nous fournit un nouveau titre contre la correction de Bochart que j'ai combattue ; puisque rien n'est plus conséquent, que de donner l'épithété d'_animée_, à une Pierre qui sert de domicile à une Divinité.
 
