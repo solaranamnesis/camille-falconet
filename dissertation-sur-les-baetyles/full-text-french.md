@@ -76,7 +76,7 @@ Eusèbe dans les fragments qu'il nous a conservez de cet Auteur Phénicien, dit*
 
 Le reste des anciens Auteurs qui parlent du _Bætyle_, comme Priscien le Grammairien, l'Auteur de l'Étymologicon et Hésychius, n'en donnent guéres d'autre notion, que comme de la pierre qu'avala Saturne. Hésychius* n'en dit que cela précisément ; ce qui a donné occasion au proverbe contre les gens voraces : _vous avaleriez même un Bætyle_.*
 
-*) Au mot [GREC]
+*) Au mot Βαἱτυλοσ, οὕτωσ ἐκαλοῖτο ὁ δοθεῖσ λἱθοσ τῳρ Κρὁνῳ αἰπ᾽ Διὁσ.
 
 *) [GREE], Erasme Adag. Chil. 4. centur. 2. Je ne çay d'où il a pris ce proverbe.
 
