@@ -72,7 +72,7 @@ Revenons aux _Bætyles_ : leur règne a este fort long : nous venons de les voir
 
 Eusèbe dans les fragments qu'il nous a conservez de cet Auteur Phénicien, dit* que le Dieu Cœlus inventa les _Bætyles_ Pierres animées : le Dieu Cœlus, c'est-à-dire le Ciel : rien ne marque mieux l'origine de ces Pierres, qui, félon Damascius, descendaient de l'air dans un globe de feu. Eusèbe avait dit plus haut, que Bétul estoit un des quatre enfants de ce Dieu ; d'où il paraît vraisemblable que Cœlus aurait donné à ces Pierres le nom de son Fils, pour faire honneur à sa mémoire, ou par quelque autre raison que nous ignorons. Je ne fais ici cette réflexion, que par rapport à l'origine d'un mot que les Grecs revendiquent : mais nous ferons plus bas cette discussion.
 
-*) _Præparat. Evangel._ l. 1. c. 10. p. 37. _édit. Viger._ [GREC]
+*) _Præparat. Evangel._ l. 1. c. 10. p. 37. _édit. Viger._ Επενὀκσε θεὁσ Οὑρανὀσ Βαιτὐλια λἱθουσ ἐμψὑχουσ μηχαινσἁμενοσ.
 
 Le reste des anciens Auteurs qui parlent du _Bætyle_, comme Priscien le Grammairien, l'Auteur de l'Étymologicon et Hésychius, n'en donnent guéres d'autre notion, que comme de la pierre qu'avala Saturne. Hésychius* n'en dit que cela précisément ; ce qui a donné occasion au proverbe contre les gens voraces : _vous avaleriez même un Bætyle_.*
 
