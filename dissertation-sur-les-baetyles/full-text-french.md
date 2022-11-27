@@ -12,9 +12,9 @@ Voici d'abord ce que* dit le faux Orphée : Apollon donna au Troyen Helenus le v
 
 *) Ibid.
 
-*) C'est ainsi qu'il faut lire, et non Σιδηρῖπς, qu'on lit dans le texte : le génitif Σιδηρῖταο qui se trouvé au ver 46e. détermine la vraie leçon.
+*) C'est ainsi qu'il faut lire, et non Σιδηρίπς, qu'on lit dans le texte : le génitif Σιδηρῖταο qui se trouvé au ver 46e. détermine la vraie leçon.
 
-*) Αμφἰ δἑ μιν κύκλω πρἱ τ᾽ ἀμφἱ τε πανθοτεν ἶνες Εῗκελοι ῥυτίδεαπ ἐπιχἁβδην ταvὐοvται. v. 20. et 21.
+*) Αμφὶ δέ μιν κύκλω πρί τ᾽ ἀμφί τε πανθοτεν ἶνες Εῗκελοι ῥυτίδεαπ ἐπιχάβδην ταvύοvται. v. 20. et 21.
 
 J'ai honte de vous rapporter de pareilles fadaises ; quel autre nom donner à cela ? Mais Photius cet Écrivain grave et judicieux, n'a pas dédaigné de nous en conserver de la même force, dans son extrait de la Vie d'Isidore par Damascius. La ressemblance de ce que je trouvé touchant les _Bætyles_ dans cet extrait, avec ce que je viens de citer d'Orphée, m'engage à rapporter ici tout de suite ce que dit Photius ; quoique depuis Orphée, beaucoup d'autres Auteurs plus anciens que Photius, ayant fait mention de ces Pierres fabuleuses.
 
@@ -22,9 +22,9 @@ Photius* nous instruit donc avec un détail assez circonstancié, de ce que Dama
 
 *) Biblioth. cod. 242. p. 1047. 1062. et 1063. édit. A. Schotti.
 
-*) _Ibid._ p. 1063. χἁμματα ὀν τδ λἱθω γεχαμμἑνα.
+*) _Ibid._ p. 1063. χάμματα ὀν τδ λίθω γεχαμμένα.
 
-*) _Ibid._ p. 1063. Φωντιὑ ἀφἱει λεπτοδ συρἱσματοσ, τιὒ ἑρμηἱευσεν ὁ Εὐσἑβιοσ.
+*) _Ibid._ p. 1063. Φωντιὺ ἀφίει λεπτοδ συρίσματοσ, τιὒ ἑρμηίευσεν ὁ Εὐσέβιοσ.
 
 *) _De Divinat. l. 3. c. 17._ où il rapporte très infidèlement le texte d'Orphée sans nommer cet Auteur, ajoutant un mot de celui de Jean Tzetzès, Chil. 6. Hist. 65. et non 57. qui n'est que l'extrait de celui d'Orphée.
 
@@ -34,7 +34,7 @@ Achevons ce qui regarde les autres singularités des _Bætyles_ rapportées par 
 
 *) _Photius, ibid._ p. 1047.
 
-*) _Ibid._ Διἁ τῧ ἀἑροσ κινὀυμενοι.
+*) _Ibid._ Διὰ τῧ ἀέροσ κινόυμενοι.
 
 *) _Ibid._ p. 1063. où Photius dit τῶν δἐ Βαιτύλων ἂλλον ἂλλῳ αὶακεῖσθαι, et que Schott traduit mal, _alium alii incumbere_ : αὶακεῖσθαι est là peur αὶατεθεῖσθαι, ἀφιεροῦσθαι.
 
@@ -44,11 +44,11 @@ Je ne peux m'empêcher de donner en passant le portrait du Philosophe Isidore, t
 
 *) _Ibid._ p. 1030.
 
-*) _Ibid._ προσωπον τετρἁγωιον, τετρἁγωνον est là au propre : plus bas il est employé au figuré dans le portrait que Damascius fait d'Agapius, p. 1074. καἰ συλλἡβδην εἰπεῖν ἐδὁκει τετρἁγωνοσ εἶναι καἰ ηὖ τηὐ σαφἱαν. Suidas au mot τετρἁγωνοσ rapporte ce passage plus amplement que Photius, et rend ce mot par εὐσαθἠσ, ἑδραῖοσ.
+*) _Ibid._ προσωπον τετράγωιον, τετράγωνον est là au propre : plus bas il est employé au figuré dans le portrait que Damascius fait d'Agapius, p. 1074. καὶ συλλήβδην εἰπεῖν ἐδόκει τετράγωνοσ εἶναι καὶ ηὖ τηὺ σαφἱαν. Suidas au mot τετράγωνοσ rapporte ce passage plus amplement que Photius, et rend ce mot par εὐσαθὴσ, ἑδραῖοσ.
 
-*) _Ibid._ Εστῶτασ ἅμα Βεβαἱουσ, ὺ ἐπιτρὁχη κινουμἑνυσ.
+*) _Ibid._ Εστῶτασ ἅμα Βεβαίουσ, ὺ ἐπιτρόχη κινουμένυσ.
 
-*) P. 1031. Ἔπ τηὐ ψυχἠν ἱπὁ τῆσ ὀμφῆσ κατεχὁμενοσ.
+*) P. 1031. Ἔπ τηὺ ψυχὴν ἱπὸ τῆσ ὀμφῆσ κατεχόμενοσ.
 
 *) _S. August. de Civit. Dei_, l. 7. c. 35. _Boissard. de Divin._ c. 5. p. 17.
 
@@ -66,31 +66,31 @@ Revenons aux _Bætyles_ : leur règne a este fort long : nous venons de les voir
 
 *) _Ger. Joan. Vossius de Poetis Græcis_ c. 4.
 
-*) Joan. Henric. Ursinus et Dodwel ; pour M. Simon Bibl. Critiq. t. 1. c. 9. il attribue cette supposition à Porphyre ; mais il n'a pas pris garde qu'Athénée qui vivait plus de 50. ans avant Porphyre, avait fait mention des Φοινικικα` de Sanchon. _Deipn._ l. 3. c. 37. Le P. Calmet, Diction. de la Bible au mot _Bethel_, a suivi le sentiment de M. Simon sans l'examiner.
+*) Joan. Henric. Ursinus et Dodwel ; pour M. Simon Bibl. Critiq. t. 1. c. 9. il attribue cette supposition à Porphyre ; mais il n'a pas pris garde qu'Athénée qui vivait plus de 50. ans avant Porphyre, avait fait mention des Φοινικικὰ de Sanchon. _Deipn._ l. 3. c. 37. Le P. Calmet, Diction. de la Bible au mot _Bethel_, a suivi le sentiment de M. Simon sans l'examiner.
 
 *) M. de la Croze, p. 174. de ses Entretiens sur divers sujets, _etc._ _Cologne_ 1711. 12.° parle de cet Homme de lettres comme d'une tierce personne, quoiqu’il y ait apparence que ce soit lui-même.
 
 Eusèbe dans les fragments qu'il nous a conservez de cet Auteur Phénicien, dit* que le Dieu Cœlus inventa les _Bætyles_ Pierres animées : le Dieu Cœlus, c'est-à-dire le Ciel : rien ne marque mieux l'origine de ces Pierres, qui, félon Damascius, descendaient de l'air dans un globe de feu. Eusèbe avait dit plus haut, que Bétul estoit un des quatre enfants de ce Dieu ; d'où il paraît vraisemblable que Cœlus aurait donné à ces Pierres le nom de son Fils, pour faire honneur à sa mémoire, ou par quelque autre raison que nous ignorons. Je ne fais ici cette réflexion, que par rapport à l'origine d'un mot que les Grecs revendiquent : mais nous ferons plus bas cette discussion.
 
-*) _Præparat. Evangel._ l. 1. c. 10. p. 37. _édit. Viger._ Επενὀκσε θεὁσ Οὑρανὀσ Βαιτὐλια λἱθουσ ἐμψὑχουσ μηχαινσἁμενοσ.
+*) _Præparat. Evangel._ l. 1. c. 10. p. 37. _édit. Viger._ Επενόκσε θεὸσ Οὑρανὸσ Βαιτύλια λίθουσ ἐμψύχουσ μηχαινσάμενοσ.
 
 Le reste des anciens Auteurs qui parlent du _Bætyle_, comme Priscien le Grammairien, l'Auteur de l'Étymologicon et Hésychius, n'en donnent guéres d'autre notion, que comme de la pierre qu'avala Saturne. Hésychius* n'en dit que cela précisément ; ce qui a donné occasion au proverbe contre les gens voraces : _vous avaleriez même un Bætyle_.*
 
-*) Au mot Βαἱτυλοσ, οὕτωσ ἐκαλοῖτο ὁ δοθεῖσ λἱθοσ τῳρ Κρὁνῳ αἰπ᾽ Διὁσ.
+*) Au mot Βαίτυλοσ, οὕτωσ ἐκαλοῖτο ὁ δοθεῖσ λίθοσ τῳρ Κρόνῳ αἰπ᾽ Διόσ.
 
-*) Καἰ Βαἱτυλον αὒ καταπἱνοισ, Erasme Adag. Chil. 4. centur. 2. Je ne çay d'où il a pris ce proverbe.
+*) Καὶ Βαίτυλον αὒ καταπίνοισ, Erasme Adag. Chil. 4. centur. 2. Je ne çay d'où il a pris ce proverbe.
 
 La Pierre que Saturne avala à la place de Jupiter, est fameuse dans la mythologie ; je ne m'y arrêterai que pour en observer quelques particularités moins connues. Agathocles* le Babylonien dit que Rhéa prit cette Pierre dans l'Isle de Proconnése : Stephanus de Byzance* rapporte que Saturne l'avala sur le Mont Thaumasius : Pausanias dans ses Arcadiques* dit la même chose d'après la tradition des gens du pays, et dans ses Bœotiques,* que ce fut sur le Mont Petrachus. On lit dans les Dionysiaques de Nonnus,* que Saturne trouvant la pierre trop pesante, la vomit : Pausanias* avait déjà rapporté ce fait dans l'endroit de ses Phociques, où il dit qu'on voyait cette fameuse Pierre près du Temple de Delphes : c'estoit une Pierre de médiocre grosseur, qu'on arrosait tous les jours d'huile, et sur laquelle on mettait de la laine crue, les jours des feste.
 
 *) Cité par le Scholiaste d'Hésiode sur le vers 485. de la Théogonie.
 
-*) Εθινικἀ au mot Θαυμἁσιον ὄροσ.
+*) Εθινικὰ au mot Θαυμάσιον ὄροσ.
 
 *) C. 36.
 
 *) C. 41. à la fin.
 
-*) Lib. 25. vers la fin, φὁρτον ἀποπτὑων.
+*) Lib. 25. vers la fin, φόρτον ἀποπτύων.
 
 *) C. 24. vers la fin.
 
@@ -108,7 +108,7 @@ L'Auteur de l'Étymologicon après avoir dit, selon la restitution de Bochart,* 
 
 *) Chanaan l. 2. c. 2.
 
-*) Βαἰτη, Βαἰτυλοσ : comme στὀμα, στωμὑλοσ, χρἑμησ, χρεμὑλοσ, _etc._
+*) Βαίτη, Βαίτυλοσ : comme στὀμα, στωμύλοσ, χρέμησ, χρεμύλοσ, _etc._
 
 *) Chanaan l. 2. c. 2.
 
@@ -138,15 +138,15 @@ J'en aurais trop dit sur le nom, si la chose même n'en dépendait. Bochart fond
 
 *) _Mœbius ex Taubmanno, in dedicat. libri sui de Oraculis._
 
-La Pierre de Jacob devait estre d'une grosseur assez considérable et d'une figure à peu près quarrée ; puisqu'il la dressa* en forme de colonne : elle estoit par conséquent immobile, et ne pouvait* avoir d'autre usage que celui d'un autel. Les _Bætyles_ au contraire, estoient d'une grosseur très médiocre ; leur figure estoit ronde, et ils estoient portatifs ; de plus ils avoient des cannelures gravées sur leur surface, et selon l'opinion commune, ils descendaient du Ciel : circonstances qu'il ne faut point perdre du vue, et par où les _Bætyles_ sont caractérisez de manière à n'avoir rien de commun, non seulement avec la Pierre de Jacob, mais encore avec toutes les autres Pierres* qui servaient au culte des Païens. Ce serait parmi ces dernières, celles* qu'on trouvé si fréquemment dans les Auteurs Sacrez et Profanes, arrosées d'huile, et couronnées de fleurs, qui auraient quelque ressemblance avec la Pierre de Jacob. Scaliger* sur Eusèbe, nous rapporte un passage Hébreu, où il est dit que Dieu prit en haine la Pierre de Jacob ; parce que les Chananéens en firent l'objet de leur idolâtrie : c'est sans doute ce qui* fit changer le nom du lieu appelé _BETHEL_, _Maison de Dieu_, en celui de _BETH-AWEN_, _Maison du mensonge_. On voit là simplement que les Chananéens faisaient de la Pierre de Jacob, le même usage que faisait en général de semblables Pierres, le commun des Païens. On peut même tirer de-là l'origine de la superstition des Juifs à l'égard du λἱθοσ σκοπὀσ dont il est parlé dans le Lévitique,* où les Idoles et les Pierres dressées, leur sont également défendues : mais est-il bien sûr que l'idolâtrie des autres Nations ait commencé par cette perverse imitation des Chananéens ? Avant Jacob il y avait eu des Idolâtres et des Pierres, aussi bien que d'autres corps, soit animez, soit inanimés, qui faisaient l'objet du culte des Chaldéens. Ce serait donc chez ces peuples qu'il faudrait chercher l'origine de l'idolâtrie des autres Nations ; puisque c'est de leur sein qu'elle se répandit sur toute la terre, avant la vocation d'Abraham, et bien longtemps avant la Loy de Moyse.
+La Pierre de Jacob devait estre d'une grosseur assez considérable et d'une figure à peu près quarrée ; puisqu'il la dressa* en forme de colonne : elle estoit par conséquent immobile, et ne pouvait* avoir d'autre usage que celui d'un autel. Les _Bætyles_ au contraire, estoient d'une grosseur très médiocre ; leur figure estoit ronde, et ils estoient portatifs ; de plus ils avoient des cannelures gravées sur leur surface, et selon l'opinion commune, ils descendaient du Ciel : circonstances qu'il ne faut point perdre du vue, et par où les _Bætyles_ sont caractérisez de manière à n'avoir rien de commun, non seulement avec la Pierre de Jacob, mais encore avec toutes les autres Pierres* qui servaient au culte des Païens. Ce serait parmi ces dernières, celles* qu'on trouvé si fréquemment dans les Auteurs Sacrez et Profanes, arrosées d'huile, et couronnées de fleurs, qui auraient quelque ressemblance avec la Pierre de Jacob. Scaliger* sur Eusèbe, nous rapporte un passage Hébreu, où il est dit que Dieu prit en haine la Pierre de Jacob ; parce que les Chananéens en firent l'objet de leur idolâtrie : c'est sans doute ce qui* fit changer le nom du lieu appelé _BETHEL_, _Maison de Dieu_, en celui de _BETH-AWEN_, _Maison du mensonge_. On voit là simplement que les Chananéens faisaient de la Pierre de Jacob, le même usage que faisait en général de semblables Pierres, le commun des Païens. On peut même tirer de-là l'origine de la superstition des Juifs à l'égard du λίθοσ σκοπὸσ dont il est parlé dans le Lévitique,* où les Idoles et les Pierres dressées, leur sont également défendues : mais est-il bien sûr que l'idolâtrie des autres Nations ait commencé par cette perverse imitation des Chananéens ? Avant Jacob il y avait eu des Idolâtres et des Pierres, aussi bien que d'autres corps, soit animez, soit inanimés, qui faisaient l'objet du culte des Chaldéens. Ce serait donc chez ces peuples qu'il faudrait chercher l'origine de l'idolâtrie des autres Nations ; puisque c'est de leur sein qu'elle se répandit sur toute la terre, avant la vocation d'Abraham, et bien longtemps avant la Loy de Moyse.
 
 *) _Erexit in titulum. Genes._ c. 28. v. 18.
 
 *) En effet cette Pierre élevée devint un autel, selon S. Augustin _de Civit. Dei_ lib. 16. c. 38.
 
-*) Ainsi Marsham p. 55. édit. _Fol._ se trompe en disant que Sanchoniathon appelle Βαιτὑλια, les premières Statués qui furent adorées. Le même Marsham suit en tout, le sentiment de Bochart.
+*) Ainsi Marsham p. 55. édit. _Fol._ se trompe en disant que Sanchoniathon appelle Βαιτύλια, les premières Statués qui furent adorées. Le même Marsham suit en tout, le sentiment de Bochart.
 
-*) Voyez-en les exemples ramassez dans Duportus _in Theoph. charact._ sur ces mots du c. 16. τῶν λιπαρωρν λἱθων. Dans Dought. _Analect. sacr. Excurs. 17. in Genesin_ ; et dans Broukhus. _in Tibull._ l. 1. _Eleg._ 1. v. 15-16.
+*) Voyez-en les exemples ramassez dans Duportus _in Theoph. charact._ sur ces mots du c. 16. τῶν λιπαρωρν λίθων. Dans Dought. _Analect. sacr. Excurs. 17. in Genesin_ ; et dans Broukhus. _in Tibull._ l. 1. _Eleg._ 1. v. 15-16.
 
 *) _Animadvers. in Chronol. Euseb._ p. 216. et d'après lui Bochart qui nous rapporte le texte Hébreu, et y ajoute la traduction. _Chan._ l. 2. c. 2.
 
