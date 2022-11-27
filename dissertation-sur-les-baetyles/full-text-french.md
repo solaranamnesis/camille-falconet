@@ -24,7 +24,7 @@ Photius* nous instruit donc avec un détail assez circonstancié, de ce que Dama
 
 *) _Ibid._ p. 1063. χάμματα ὀν τδ λίθω γεχαμμένα.
 
-*) _Ibid._ p. 1063. Φωντιὺ ἀφίει λεπτοδ συρίσματοσ, τιὒ ἑρμηίευσεν ὁ Εὐσέβιοσ.
+*) _Ibid._ p. 1063. Φωντιὺ ἀφίει λεπτοδ συρίσματοσ, τιὒ ἑρμηίευσεν ὁ Εὐσέβιος.
 
 *) _De Divinat. l. 3. c. 17._ où il rapporte très infidèlement le texte d'Orphée sans nommer cet Auteur, ajoutant un mot de celui de Jean Tzetzès, Chil. 6. Hist. 65. et non 57. qui n'est que l'extrait de celui d'Orphée.
 
@@ -34,7 +34,7 @@ Achevons ce qui regarde les autres singularités des _Bætyles_ rapportées par 
 
 *) _Photius, ibid._ p. 1047.
 
-*) _Ibid._ Διὰ τῧ ἀέροσ κινόυμενοι.
+*) _Ibid._ Διὰ τῧ ἀέρος κινόυμενοι.
 
 *) _Ibid._ p. 1063. où Photius dit τῶν δἐ Βαιτύλων ἂλλον ἂλλῳ αὶακεῖσθαι, et que Schott traduit mal, _alium alii incumbere_ : αὶακεῖσθαι est là peur αὶατεθεῖσθαι, ἀφιεροῦσθαι.
 
@@ -44,11 +44,11 @@ Je ne peux m'empêcher de donner en passant le portrait du Philosophe Isidore, t
 
 *) _Ibid._ p. 1030.
 
-*) _Ibid._ προσωπον τετράγωιον, τετράγωνον est là au propre : plus bas il est employé au figuré dans le portrait que Damascius fait d'Agapius, p. 1074. καὶ συλλήβδην εἰπεῖν ἐδόκει τετράγωνοσ εἶναι καὶ ηὖ τηὺ σαφἱαν. Suidas au mot τετράγωνοσ rapporte ce passage plus amplement que Photius, et rend ce mot par εὐσαθὴσ, ἑδραῖοσ.
+*) _Ibid._ προσωπον τετράγωιον, τετράγωνον est là au propre : plus bas il est employé au figuré dans le portrait que Damascius fait d'Agapius, p. 1074. καὶ συλλήβδην εἰπεῖν ἐδόκει τετράγωνος εἶναι καὶ ηὖ τηὺ σαφἱαν. Suidas au mot τετράγωνος rapporte ce passage plus amplement que Photius, et rend ce mot par εὐσαθὴσ, ἑδραῖος.
 
-*) _Ibid._ Εστῶτασ ἅμα Βεβαίουσ, ὺ ἐπιτρόχη κινουμένυσ.
+*) _Ibid._ Εστῶτας ἅμα Βεβαίουσ, ὺ ἐπιτρόχη κινουμένυς.
 
-*) P. 1031. Ἔπ τηὺ ψυχὴν ἱπὸ τῆσ ὀμφῆσ κατεχόμενοσ.
+*) P. 1031. Ἔπ τηὺ ψυχὴν ἱπὸ τῆς ὀμφῆς κατεχόμενος.
 
 *) _S. August. de Civit. Dei_, l. 7. c. 35. _Boissard. de Divin._ c. 5. p. 17.
 
@@ -72,11 +72,11 @@ Revenons aux _Bætyles_ : leur règne a este fort long : nous venons de les voir
 
 Eusèbe dans les fragments qu'il nous a conservez de cet Auteur Phénicien, dit* que le Dieu Cœlus inventa les _Bætyles_ Pierres animées : le Dieu Cœlus, c'est-à-dire le Ciel : rien ne marque mieux l'origine de ces Pierres, qui, félon Damascius, descendaient de l'air dans un globe de feu. Eusèbe avait dit plus haut, que Bétul estoit un des quatre enfants de ce Dieu ; d'où il paraît vraisemblable que Cœlus aurait donné à ces Pierres le nom de son Fils, pour faire honneur à sa mémoire, ou par quelque autre raison que nous ignorons. Je ne fais ici cette réflexion, que par rapport à l'origine d'un mot que les Grecs revendiquent : mais nous ferons plus bas cette discussion.
 
-*) _Præparat. Evangel._ l. 1. c. 10. p. 37. _édit. Viger._ Επενόκσε θεὸσ Οὑρανὸσ Βαιτύλια λίθουσ ἐμψύχουσ μηχαινσάμενοσ.
+*) _Præparat. Evangel._ l. 1. c. 10. p. 37. _édit. Viger._ Επενόκσε θεὸς Οὑρανὸς Βαιτύλια λίθους ἐμψύχους μηχαινσάμενος.
 
 Le reste des anciens Auteurs qui parlent du _Bætyle_, comme Priscien le Grammairien, l'Auteur de l'Étymologicon et Hésychius, n'en donnent guéres d'autre notion, que comme de la pierre qu'avala Saturne. Hésychius* n'en dit que cela précisément ; ce qui a donné occasion au proverbe contre les gens voraces : _vous avaleriez même un Bætyle_.*
 
-*) Au mot Βαίτυλοσ, οὕτωσ ἐκαλοῖτο ὁ δοθεῖσ λίθοσ τῳρ Κρόνῳ αἰπ᾽ Διόσ.
+*) Au mot Βαίτυλοσ, οὕτως ἐκαλοῖτο ὁ δοθεῖς λίθος τῳρ Κρόνῳ αἰπ᾽ Διός.
 
 *) Καὶ Βαίτυλον αὒ καταπίνοισ, Erasme Adag. Chil. 4. centur. 2. Je ne çay d'où il a pris ce proverbe.
 
@@ -84,7 +84,7 @@ La Pierre que Saturne avala à la place de Jupiter, est fameuse dans la mytholog
 
 *) Cité par le Scholiaste d'Hésiode sur le vers 485. de la Théogonie.
 
-*) Εθινικὰ au mot Θαυμάσιον ὄροσ.
+*) Εθινικὰ au mot Θαυμάσιον ὄρος.
 
 *) C. 36.
 
@@ -108,7 +108,7 @@ L'Auteur de l'Étymologicon après avoir dit, selon la restitution de Bochart,* 
 
 *) Chanaan l. 2. c. 2.
 
-*) Βαίτη, Βαίτυλοσ : comme στὀμα, στωμύλοσ, χρέμησ, χρεμύλοσ, _etc._
+*) Βαίτη, Βαίτυλος : comme στὀμα, στωμύλοσ, χρέμησ, χρεμύλοσ, _etc._
 
 *) Chanaan l. 2. c. 2.
 
@@ -138,7 +138,7 @@ J'en aurais trop dit sur le nom, si la chose même n'en dépendait. Bochart fond
 
 *) _Mœbius ex Taubmanno, in dedicat. libri sui de Oraculis._
 
-La Pierre de Jacob devait estre d'une grosseur assez considérable et d'une figure à peu près quarrée ; puisqu'il la dressa* en forme de colonne : elle estoit par conséquent immobile, et ne pouvait* avoir d'autre usage que celui d'un autel. Les _Bætyles_ au contraire, estoient d'une grosseur très médiocre ; leur figure estoit ronde, et ils estoient portatifs ; de plus ils avoient des cannelures gravées sur leur surface, et selon l'opinion commune, ils descendaient du Ciel : circonstances qu'il ne faut point perdre du vue, et par où les _Bætyles_ sont caractérisez de manière à n'avoir rien de commun, non seulement avec la Pierre de Jacob, mais encore avec toutes les autres Pierres* qui servaient au culte des Païens. Ce serait parmi ces dernières, celles* qu'on trouvé si fréquemment dans les Auteurs Sacrez et Profanes, arrosées d'huile, et couronnées de fleurs, qui auraient quelque ressemblance avec la Pierre de Jacob. Scaliger* sur Eusèbe, nous rapporte un passage Hébreu, où il est dit que Dieu prit en haine la Pierre de Jacob ; parce que les Chananéens en firent l'objet de leur idolâtrie : c'est sans doute ce qui* fit changer le nom du lieu appelé _BETHEL_, _Maison de Dieu_, en celui de _BETH-AWEN_, _Maison du mensonge_. On voit là simplement que les Chananéens faisaient de la Pierre de Jacob, le même usage que faisait en général de semblables Pierres, le commun des Païens. On peut même tirer de-là l'origine de la superstition des Juifs à l'égard du λίθοσ σκοπὸσ dont il est parlé dans le Lévitique,* où les Idoles et les Pierres dressées, leur sont également défendues : mais est-il bien sûr que l'idolâtrie des autres Nations ait commencé par cette perverse imitation des Chananéens ? Avant Jacob il y avait eu des Idolâtres et des Pierres, aussi bien que d'autres corps, soit animez, soit inanimés, qui faisaient l'objet du culte des Chaldéens. Ce serait donc chez ces peuples qu'il faudrait chercher l'origine de l'idolâtrie des autres Nations ; puisque c'est de leur sein qu'elle se répandit sur toute la terre, avant la vocation d'Abraham, et bien longtemps avant la Loy de Moyse.
+La Pierre de Jacob devait estre d'une grosseur assez considérable et d'une figure à peu près quarrée ; puisqu'il la dressa* en forme de colonne : elle estoit par conséquent immobile, et ne pouvait* avoir d'autre usage que celui d'un autel. Les _Bætyles_ au contraire, estoient d'une grosseur très médiocre ; leur figure estoit ronde, et ils estoient portatifs ; de plus ils avoient des cannelures gravées sur leur surface, et selon l'opinion commune, ils descendaient du Ciel : circonstances qu'il ne faut point perdre du vue, et par où les _Bætyles_ sont caractérisez de manière à n'avoir rien de commun, non seulement avec la Pierre de Jacob, mais encore avec toutes les autres Pierres* qui servaient au culte des Païens. Ce serait parmi ces dernières, celles* qu'on trouvé si fréquemment dans les Auteurs Sacrez et Profanes, arrosées d'huile, et couronnées de fleurs, qui auraient quelque ressemblance avec la Pierre de Jacob. Scaliger* sur Eusèbe, nous rapporte un passage Hébreu, où il est dit que Dieu prit en haine la Pierre de Jacob ; parce que les Chananéens en firent l'objet de leur idolâtrie : c'est sans doute ce qui* fit changer le nom du lieu appelé _BETHEL_, _Maison de Dieu_, en celui de _BETH-AWEN_, _Maison du mensonge_. On voit là simplement que les Chananéens faisaient de la Pierre de Jacob, le même usage que faisait en général de semblables Pierres, le commun des Païens. On peut même tirer de-là l'origine de la superstition des Juifs à l'égard du λίθος σκοπὸς dont il est parlé dans le Lévitique,* où les Idoles et les Pierres dressées, leur sont également défendues : mais est-il bien sûr que l'idolâtrie des autres Nations ait commencé par cette perverse imitation des Chananéens ? Avant Jacob il y avait eu des Idolâtres et des Pierres, aussi bien que d'autres corps, soit animez, soit inanimés, qui faisaient l'objet du culte des Chaldéens. Ce serait donc chez ces peuples qu'il faudrait chercher l'origine de l'idolâtrie des autres Nations ; puisque c'est de leur sein qu'elle se répandit sur toute la terre, avant la vocation d'Abraham, et bien longtemps avant la Loy de Moyse.
 
 *) _Erexit in titulum. Genes._ c. 28. v. 18.
 
@@ -162,7 +162,7 @@ J'admire les travaux de ces grands hommes* qui ont employé la plus vaste érudi
 
 *) C'est ce que Pline dit de la Magie, à la fin du c. 1. du 30e. l. de son Histoire : ce qu'on peut dire de la Religion avec bien plus de raison.
 
-Il me reste une mention des _Bætyles_, dans un Auteur peu connu, parce qu'il est demeuré Manuscrit : c'est un Joseph Chrétien* du 5e. siècle, différent de Joseph de Tibériade : plusieurs Savants citent son _Hypomnesticum_ : Thomas Gale, qui en avait une copie tirée sur le MS. de la Bibliothèque de Cambridge, en rapporte un passage assez long dans ses Notes* sur le livre des Mystères de Iamblique. Dans ce passage, Joseph après avoir parlé de plusieurs espèces de divination, ajoute : τὰ ἐν τοῖσ ναοῖσ Βαιτύλια δζὰ λίθιον ἐν τοῖσ στοιχείοισ προσρασθόντων. Je ne çay quel sens donner à ces mots, si l'on n'y fait quelque correction : je croirais qu'il faut lire δζὰ λίθιον ἐν τοῖσ τοίχοισ προσχρνσαύ των ; _Bætyles des temples, genre de divination, qui se fait par le moyen de certains Pierres enchâssées dans les murailles, et qui de-là rendent des Oracles_. Nous avons vu dans l'extrait de Photius, que le Médecin Eusèbe plantait son _Bætyle_ dans le mur, quand il voulait l'interroger ἐν τοῖχω ἐγκρόυσασ.* Si l'on veut conserver dans ce passage, les mots ἐν τοῖσ στιχέιοισ, cela signifiera que ces Pierres rendaient des Oracles par la vertu des lettres gravées sur leur surface : Damascius,* ainsi que nous avons remarqué, appelait _lettres_, ces lignes raboteuses qu'Orphée décrit sous le nom de _rides_ ; mais pour parler plus sûrement, il faudrait voir le MS. Il n'y a à la Bibliothèque du Roy, qu'un fragment de l'ouvrage de ce Joseph, et dans ce fragment, le passage dont il est question, ne se trouvé point.
+Il me reste une mention des _Bætyles_, dans un Auteur peu connu, parce qu'il est demeuré Manuscrit : c'est un Joseph Chrétien* du 5e. siècle, différent de Joseph de Tibériade : plusieurs Savants citent son _Hypomnesticum_ : Thomas Gale, qui en avait une copie tirée sur le MS. de la Bibliothèque de Cambridge, en rapporte un passage assez long dans ses Notes* sur le livre des Mystères de Iamblique. Dans ce passage, Joseph après avoir parlé de plusieurs espèces de divination, ajoute : τὰ ἐν τοῖς ναοῖς Βαιτύλια δζὰ λίθιον ἐν τοῖς στοιχείοις προσρασθόντων. Je ne çay quel sens donner à ces mots, si l'on n'y fait quelque correction : je croirais qu'il faut lire δζὰ λίθιον ἐν τοῖς τοίχοις προσχρνσαύ των ; _Bætyles des temples, genre de divination, qui se fait par le moyen de certains Pierres enchâssées dans les murailles, et qui de-là rendent des Oracles_. Nous avons vu dans l'extrait de Photius, que le Médecin Eusèbe plantait son _Bætyle_ dans le mur, quand il voulait l'interroger ἐν τοῖχω ἐγκρόυσας.* Si l'on veut conserver dans ce passage, les mots ἐν τοῖς στιχέιοισ, cela signifiera que ces Pierres rendaient des Oracles par la vertu des lettres gravées sur leur surface : Damascius,* ainsi que nous avons remarqué, appelait _lettres_, ces lignes raboteuses qu'Orphée décrit sous le nom de _rides_ ; mais pour parler plus sûrement, il faudrait voir le MS. Il n'y a à la Bibliothèque du Roy, qu'un fragment de l'ouvrage de ce Joseph, et dans ce fragment, le passage dont il est question, ne se trouvé point.
 
 *) V. G. Cave _Scriptor. Ecclesiast. Histor. Sæcul. Nestorian._
 
@@ -180,7 +180,7 @@ Outre les Pierres appelées expressément _Bætyles_, ou caractérisées de la m
 
 *) V. les notes de G. Cuper _in Lactant. de mortibus Persecut._ p. 156-158.
 
-Je serais mieux fondé à faire passer pour _Bætyles_, les Pierres* que l'on consacrait dans le Temple de Minerve Chalcidique à Sparte ; elles en avoient du moins la figure et le mouvement. Le Plutarque auteur du livre des Fleuves, dit qu'on les prenait dans le fleuve Eurotas ; que leur figure ressemblait à celle d'un casque ; qu'au son de la trompette elles s'élevaient sur l'eau ; et qu'au nom des Athéniens, sitôt qu'il estoit prononcé, elles se replongeaient au fond du fleuve : circonstances d'où elles avoient reçu le nom de [GREC]. La fable de ce mouvement ridicule est manifestement tirée de l'aventure du Prince Eurotas, dont il est parlé au même endroit, et elle n'a rien de commun avec celle du mouvement spontanée des _Bætyles_ ; mais cette figure de casque leur convient parfaitement, ainsi qu'on peut le reconnaître par l'inspection même de la Pierre, que je prouverai avoir este le _Bætyle_ des Anciens.
+Je serais mieux fondé à faire passer pour _Bætyles_, les Pierres* que l'on consacrait dans le Temple de Minerve Chalcidique à Sparte ; elles en avoient du moins la figure et le mouvement. Le Plutarque auteur du livre des Fleuves, dit qu'on les prenait dans le fleuve Eurotas ; que leur figure ressemblait à celle d'un casque ; qu'au son de la trompette elles s'élevaient sur l'eau ; et qu'au nom des Athéniens, sitôt qu'il estoit prononcé, elles se replongeaient au fond du fleuve : circonstances d'où elles avoient reçu le nom de Θρασύδειλοι. La fable de ce mouvement ridicule est manifestement tirée de l'aventure du Prince Eurotas, dont il est parlé au même endroit, et elle n'a rien de commun avec celle du mouvement spontanée des _Bætyles_ ; mais cette figure de casque leur convient parfaitement, ainsi qu'on peut le reconnaître par l'inspection même de la Pierre, que je prouverai avoir este le _Bætyle_ des Anciens.
 
 *) _Plutarch. de Fluviis. S. Eurotas._
 
@@ -226,13 +226,13 @@ Je sens que je m'écarte beaucoup ; mais je ne saurais encore venir au point cap
 
 *) Dans lavie de Sylla, parlant du serment que Marius fit faire à Cinna.
 
-Un Auteur* de réputation qui a donné depuis peu un Dictionnaire d'antiquités, pour autoriser le prétendu _Jupiter Lapis_, nous rapporte de la Chronique d'Eusèbe* un _Lapis_ qui a régné en Crète : s'il avait pris la peine de voir le texte Grec, il aurait trouvé [GREC], mot qui certainement n'a pas este fait sur le Latin _lapis_ ; puisque ce [GREC] régnait en Crète longtemps avant la guerre de Troy. On aurait tort de souhaiter que cet Auteur eût compris dans son livre, les Antiquités Grecques ; à juger par cet échantillon, nous devons lui estre obligez de n'avoir pas fait cette entreprise.
+Un Auteur* de réputation qui a donné depuis peu un Dictionnaire d'antiquités, pour autoriser le prétendu _Jupiter Lapis_, nous rapporte de la Chronique d'Eusèbe* un _Lapis_ qui a régné en Crète : s'il avait pris la peine de voir le texte Grec, il aurait trouvé Λάπις, mot qui certainement n'a pas este fait sur le Latin _lapis_ ; puisque ce Λάπις régnait en Crète longtemps avant la guerre de Troy. On aurait tort de souhaiter que cet Auteur eût compris dans son livre, les Antiquités Grecques ; à juger par cet échantillon, nous devons lui estre obligez de n'avoir pas fait cette entreprise.
 
 *) _Sam. Puiscus Lexicon Antiq. Roman._
 
 *) _Anno à nato Abrah._ 554. selon l'édition de Scaliger.
 
-Il faut pourtant avouer qu'il y avait chez les Grecs, un _Jupiter lapideus_, [GREC] ; mais il n'a pas plus de rapport aux _Bætyles_, que le Pierre auprès de laquelle, et non par laquelle juraient, selon le décret de Solon, les Magistrats d'Athènes,* appelez par cette raison [GREC]. Cependant un Commentateur* sur A. Gelle, copié ensuite par d'autres,* nous entasse ces [GREC], le _Jupiter lapis_, et les _Bætyles_. Ces fautes de jugement ordinaires aux Commentateurs de profession, servent à mieux faire sentir le mérite de celui qui uniquement attaché à éclaircir son texte, sait dispenser avec sobriété et avec discernement, les trésors de son érudition.
+Il faut pourtant avouer qu'il y avait chez les Grecs, un _Jupiter lapideus_, λιθίοτος ; mais il n'a pas plus de rapport aux _Bætyles_, que le Pierre auprès de laquelle, et non par laquelle juraient, selon le décret de Solon, les Magistrats d'Athènes,* appelez par cette raison λιθόμοται. Cependant un Commentateur* sur A. Gelle, copié ensuite par d'autres,* nous entasse ces , le _Jupiter lapis_, et les _Bætyles_. Ces fautes de jugement ordinaires aux Commentateurs de profession, servent à mieux faire sentir le mérite de celui qui uniquement attaché à éclaircir son texte, sait dispenser avec sobriété et avec discernement, les trésors de son érudition.
 
 *) 5. _Meursius Atticar. lection._ lib. 1. c. 6.
 
