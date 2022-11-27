@@ -48,7 +48,7 @@ Je ne peux m'empêcher de donner en passant le portrait du Philosophe Isidore, t
 
 *) _Ibid._ Εστῶτασ ἅμα Βεβαἱουσ, ὺ ἐπιτρὁχη κινουμἑνυσ.
 
-*) P. 1031. [GREC]
+*) P. 1031. Ἔπ τηὐ ψυχἠν ἱπὁ τῆσ ὀμφῆσ κατεχὁμενοσ.
 
 *) _S. August. de Civit. Dei_, l. 7. c. 35. _Boissard. de Divin._ c. 5. p. 17.
 
