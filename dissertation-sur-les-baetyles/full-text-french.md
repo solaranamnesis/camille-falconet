@@ -44,9 +44,9 @@ Je ne peux m'empêcher de donner en passant le portrait du Philosophe Isidore, t
 
 *) _Ibid._ p. 1030.
 
-*) _Ibid._ προσωπον τετρἁγωιον, τετρἁγωνον est là au propre : plus bas il est employé au figuré dans le portrait que Damascius fait d'Agapius, p. 1074. καἰ συλλἡβδην εἰπεῖν ἐδὁκει τετρἁγωνοσ εἶναι καἰ κὖ τκὐ σαφἱαν. Suidas au mot τετρἁγωνοσ rapporte ce passage plus amplement que Photius, et rend ce mot par εὐσαθἠσ, ἑδραῖοσ.
+*) _Ibid._ προσωπον τετρἁγωιον, τετρἁγωνον est là au propre : plus bas il est employé au figuré dans le portrait que Damascius fait d'Agapius, p. 1074. καἰ συλλἡβδην εἰπεῖν ἐδὁκει τετρἁγωνοσ εἶναι καἰ ηὖ τηὐ σαφἱαν. Suidas au mot τετρἁγωνοσ rapporte ce passage plus amplement que Photius, et rend ce mot par εὐσαθἠσ, ἑδραῖοσ.
 
-*) _Ibid._ [GREC]
+*) _Ibid._ Εστῶτασ ἅμα Βεβαἱουσ, ὺ ἐπιτρὁχη κινουμἑνυσ.
 
 *) P. 1031. [GREC]
 
