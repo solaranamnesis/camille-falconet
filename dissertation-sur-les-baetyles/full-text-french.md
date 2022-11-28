@@ -244,15 +244,15 @@ Revenons aux _Bætyles_, pour ne les plus quitter. Nous avons vu ceux qui estoie
 
 *) _Chanaan_ lib. 2. c. 2.
 
-Je vous paraîtrai sans doute encore moins raisonnable que Bochart, quand j'assurerai qu'il n'y a rien à changer au mot [GREC], et que cette étoile prise à la lettre est une vraie Pierre du genre des _Bætyles_ : vous me trouverez tout aussi extraordinaire, quand je vous donnerai pour une étoile, la Pierre qui, selon la prédiction d'Anaxagore, tomba à Ægospotamos ville de la Chersonèse Taurique : mais j'espère en vous exposant le système que nous allons développer, vous prouver évidemment cet étrange paradoxe, que certaines étoiles en l'air, estoient des _Bætyles_ allumez, et que ces _Bætyles_ sur la terre, estoient des étoiles éteintes.
+Je vous paraîtrai sans doute encore moins raisonnable que Bochart, quand j'assurerai qu'il n'y a rien à changer au mot ἀστέρα, et que cette étoile prise à la lettre est une vraie Pierre du genre des _Bætyles_ : vous me trouverez tout aussi extraordinaire, quand je vous donnerai pour une étoile, la Pierre qui, selon la prédiction d'Anaxagore, tomba à Ægospotamos ville de la Chersonèse Taurique : mais j'espère en vous exposant le système que nous allons développer, vous prouver évidemment cet étrange paradoxe, que certaines étoiles en l'air, estoient des _Bætyles_ allumez, et que ces _Bætyles_ sur la terre, estoient des étoiles éteintes.
 
 Pline* nous parle de la Pierre _Astroitès_, dont il dit que Zoroastre célébré les grandes vertus pour les opérations magiques. Cet _Astroitès_, selon moi, se trouvé sous le nom de _Pierre_ simplement, sans autre addition, dans ce qui nous reste des Oracles supposez de Zoroastre : c'est précisément* à la fin de ces fragments, qu'il est recommandé d'offrir en sacrifice une _Pierre_, lorsqu'on verra un Démon terrestre s'approcher : en éclaircissant ce point de Théurgie, qui est important pour nôtre sujet, il paraîtra très vraisemblable que cette Pierre estoit un _Bætyle_. Enfin Porphyre* dans la Vie de Pythagore, dit que ce Philosophe estant arrivé en Crète, se fit purifier avec la _Pierre de foudre_, par le Prestre Morgus un des Dactyles Idéens : voilà un nom qui commence à dévoiler la nature des _Bætyles_ : et je vais démontrer que le _Bætyle_ est une espèce de _Pierre de foudre_ : la preuve est évidente ; je la tire de Pline dont le témoignage est formel : il est étonnant qu'aucun de ceux qui ont parlé des _Bætyles_, n'ait su prendre la vraie notion de ces Pierres dans le passage suivant de ce Naturaliste : _Sotacus et alia duo genera fecit Cerauniæ, nigras rubentesque, ac similes eas esse securibus ; per illas quæ nigræ sunt et rotundæ, urbes expugnari et classes, easuqe BETULOS vocari ; qua vero longæ sunt, Ceraunias._*
 
 *) _Natur. Histor._ lib. 37. c. 9.
 
-*) [GREC]
+*) Ἡνἰκα δ᾽ ἐρχόμενον πρόσγειον δαἱμον᾽ ἀθρήσης Θῦε λίθον, Μνίζουρα ἐπαυδὢν.
 
-*) S. 17. [GREC]
+*) S. 17. Ὲκαθάρθη τῇ Κεραυνία λίθω.
 
 *) _Natural. Histor._ lib. 37. c. 9.
 
