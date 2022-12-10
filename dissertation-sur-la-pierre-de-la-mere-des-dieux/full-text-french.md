@@ -46,11 +46,11 @@ Pour confirmer ce que nous avons dit sur le peu de volume de la pierre de la mè
 
 Il semblerait que le mot de _simulacre_ indiquerait quelque ressemblance à la chose représentée ; mais on se tromperait : tout ce qui faisait l'objet de l'Idolâtrie dans ces premiers temps où elle devança la sculpture, quelque figure qu'il eût, portait le nom de _simulacre_, comme si ç'avoient été des statues. Les Celtes adoraient Jupiter sous la forme d'un chêne : une souche, un tronc coupé à Thespies, et une planche* à Samos furent les premières idoles de Junon ; Minerve, _inter Deos ergatas_, Ἀθήνη ἐργάνη, et Apollon, ἀγυιεὺς, étaient représentés par des pierres carrées ; Latone à Délos, Diane à Icare étaient des morceaux de bois informes ; la statue d'Apollon* à Delphes était une colonne ; et sept colonnes dans la Laconie représentaient les sept planètes : Castor et Pollux à Sparte étaient figurés par deux poutres parallèles, traversées près de leurs extrémités par deux autres. Selon Plutarque* qui décrit cette figure, Δόκανα était leur nom ; les Gémeaux sont ainsi désignés par les Astronomes, et cette figure a passé dans nos almanachs : une pierre pyramidale était la Vénus de Paphos* (on la voit sur les médailles) ; de simples pierres,* sans aucune figure particulière, étaient les idoles de l'Amour* à Thespies, et d'Hercule à Hyète : une pierre carrée* servait également et d'idole et d'autel aux Arabes ; ainsi que chez les Dymatiens* de la même nation, un autel tenait lieu de statue. Je pousserais cette énumération bien plus loin ; mais il me suffit de remarquer que les auteurs qui rapportent tous ces faits, emploient des mots de la même valeur que celui de _simulacre_, pour exprimer ces objets représentatifs d'une divinité avec laquelle ils n'avoient aucune ressemblance. Il semble que les premiers hommes regardaient comme impossible* de représenter des Dieux qui étaient invisibles.* C'est peut-être par cette raison que Clément Alexandrin dit qu'on se servait de colonnes, non comme d'une image, mais simplement comme d'un signe.* Nous n'avons donc rien à conclure sur la figure de la pierre de la mère des Dieux, des mots ἄγαλμα, ἀφίδρυμα, βρέτας, ξόανον, _simulacrum_, dont on s'est servi pour la désigner.
 
-*) Clem. Alexandr. _Prot. c. 4._, [GREC] est mal rendu, _stipes_ par le traducteur, _pluteus_ mieux dans Arnobe, _l. 6_ ; le fait est pris de Callimaque. _Voy, fragment 105_ et _la note de Bentley._
+*) Clem. Alexandr. _Prot. c. 4._, σανὶς est mal rendu, _stipes_ par le traducteur, _pluteus_ mieux dans Arnobe, _l. 6_ ; le fait est pris de Callimaque. _Voy, fragment 105_ et _la note de Bentley._
 
-*) Clem. Alexandr. Stromat. _liv. 1, chap. 24_, voyez aussi Pausanias Corinth. _liv. 2, chap. 9 et 29_, et Harpocration au mot [GREC].
+*) Clem. Alexandr. Stromat. _liv. 1, chap. 24_, voyez aussi Pausanias Corinth. _liv. 2, chap. 9 et 29_, et Harpocration au mot Ἀγυιᾶς.
 
-*) _Plut. initio libri_ [GREC]. M. Huet traduit [GREC] par _trabalia, Animadvers. in Manil. pag. 82_, le P. Calmet _in Genes. c. 28_, lit mal [GREC].
+*) _Plut. initio libri_ πρὶ Φιλαδελφίας. M. Huet traduit δὁκανα par _trabalia, Animadvers. in Manil. pag. 82_, le P. Calmet _in Genes. c. 28_, lit mal δονάκια.
 
 *) Tacite, _historiar. l. 2, c. 2 et Maxim. Tyr. Dissert. 38. Vide Cuper. in Lactant. de mortib. persecutor. pag. 158, édit. de Bauldri._ Sous la même forme pyramidale étaient adorés le Soleil à Èmèse, _Hérodien, liv. 5, chap. 3_, Jupiter Milichius à Sicyone, _Pausan_. _Corinthiac. lib. 2, cap. 9_, et Apollon Carinus à Mégare, _Paus. Atticor. l. 1, c. 44._
 
@@ -60,7 +60,7 @@ Il semblerait que le mot de _simulacre_ indiquerait quelque ressemblance à la c
 
 *) _Pocock specimen historiæ Arabum, pag. 114, 121, 122, et Bochart Phaleg. l. 2, c. 19_.
 
-*) [GREC], _etc. Porphyr. de abstinentia carn. l. 2., c. 56, v._ [GREC] _dans Steph. Doumata Igiandal_, ainsr nommé aujourd'hui, lieu de l'Arabie déserte, qui sépare la Syrie de l'ancienne Chaldée. _Voy. Laroque, description de l'Araie._
+*) Χρῶνται Δουμαθηνοὶ ὡς ξοάνῳ, _etc. Porphyr. de abstinentia carn. l. 2., c. 56, v._ Δοὐμαθα _dans Steph. Doumata Igiandal_, ainsr nommé aujourd'hui, lieu de l'Arabie déserte, qui sépare la Syrie de l'ancienne Chaldée. _Voy. Laroque, description de l'Araie._
 
 *) _Clem. Alexandr._ [GREC]. _Stromat. l. 1, c. 24._
 
