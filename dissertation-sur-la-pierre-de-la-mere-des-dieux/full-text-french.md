@@ -62,9 +62,9 @@ Il semblerait que le mot de _simulacre_ indiquerait quelque ressemblance à la c
 
 *) Χρῶνται Δουμαθηνοὶ ὡς ξοάνῳ, _etc. Porphyr. de abstinentia carn. l. 2., c. 56, v._ Δοὐμαθα _dans Steph. Doumata Igiandal_, ainsr nommé aujourd'hui, lieu de l'Arabie déserte, qui sépare la Syrie de l'ancienne Chaldée. _Voy. Laroque, description de l'Araie._
 
-*) _Clem. Alexandr._ [GREC]. _Stromat. l. 1, c. 24._
+*) _Clem. Alexandr._ τὸ ἀνει κόνιστον τοῦ θεοῦ. _Stromat. l. 1, c. 24._
 
-*) [GREC]. _v. Ezech. Spanh. in lavacr. Pallad. Pag. 595._
+*) Ἀόρατοι, ἀμόρφωτοι, ἀτύπωτοι. _v. Ezech. Spanh. in lavacr. Pallad. Pag. 595._
 
 *) Ce qu'il dit des colonnes, Justin le dit des lances, _ab origine rerum pro Diis immortalibus hastas coluere_, lib. 43, cap. 3, _vide Cuper. Apotheos. Homer. p. 22._
 
