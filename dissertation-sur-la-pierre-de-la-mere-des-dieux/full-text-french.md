@@ -155,7 +155,7 @@ Rien de moins surprenant qu'un pareil miracle pour la Phrygie entièrement fanat
 
 Voici encore un fait nouveau : cette pierre, en différents lieux, a dû, selon leur situation, être entraînée par les torrents dans l'eau des rivières. Il est facile de reconnaître un véritable hystérolithe dans la pierre, que le Plutarque, auteur du livre des fleuves, dit se trouver dans le fleuve _Sagaris_ : _Il naît, dit-il, dans ce fleuve, une pierre sculptée naturellement qui porte la ressemblance de la mère des Dieux_.* Cette ressemblance ne peut être expliquée que par une configuration telle que celle que nous avons décrite : au reste ce fleuve _Sagaris_ se trouve fort mêlé dans tout ce qui regarde la mère des Dieux.*
 
-*) [GREC] (sculptée d'elle-même) [GREC].
+*) Γεννᾶται δἀιἐν ἀυτωερ λίθος ἀυτόγλυφος (sculptée d'elle-même) εὑρίσκεται γαρ τετυπωμεύην ἔχων τὴν Μητέρα τῶν Θεῶν.
 
 *) Ovide, Pline, _etc._ disent _Sagaris_, mais plus communément Σαγγάριος, Sangarius chez les auteurs Grecs d'après Homère ; il tient son nom de l'impie Sangas, que Rhéa métamorphosa en ses eaux, selon le scholiaste d'Apollonius _in l. 2, v. 724_. La nymphe appelée _Sagaritis_ par Ovide, _Fastor. lib. 4, v. 239_ (la _Sangaride_ de notre Opéra) était sa fille. Arnobe, _l. 5, p. 164, édit. Bat._ nomme cette fille _Nana_, et en fait la mère d'Attis, au lieu qu'Ovide en fait son amante : il est vraisemblable que dans Stace. _Sylv. l. 3, 4, v. 41_, Sangarius _puer est Attis_, plutôt que Ganymède. Quelques auteurs dans Apollodore, _l. 3, c. 11, S 5_, donnent aussi pour fille de Sangarius Hécube, femme du roi Priam. Au reste, Tite-Live est mauvais géographe, quand au lieu du Pont Euxin, où se jette ce fleuve, il met son embouchure dans la Propontide, _liv. 38, chap. 18_.
 
