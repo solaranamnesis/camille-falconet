@@ -125,11 +125,11 @@ Que ne pourrais-je point ajouter sur Bérécynte,* sur Métropolis,* sur Cybèle
 
 *) Voyez ci-dessous ce que je dis sur ce fleuve.
 
-*) Rivière dont l'eau rendait sous ceux qui en buvaient, au point de se mutiler eux-mêmes, ainsi qu'avait fait Gallus, compagnon d'Attis, d'où la rivière appelée Tyras avait pris le nom de Gallus, et les prêtres de Cybèle celui de Galli. _5. Ovid. Fastor. l. 4, v. 361-6_, et _Stephan. au mot_ [GREC]. Saint Jérôme, _comment. in Oseam., c. 4_, donne à ce mot une origine assez extraordinaire ; Gervasius Tilberiensis, qui dans ses _Otia Imperialia_, renchérit sur saint Jérôme, la rend tout-à-fait ridicule ; celle que donne Is. Vossius, _in Catul. Galliambum_, n'est guère plus raisonnable.
+*) Rivière dont l'eau rendait sous ceux qui en buvaient, au point de se mutiler eux-mêmes, ainsi qu'avait fait Gallus, compagnon d'Attis, d'où la rivière appelée Tyras avait pris le nom de Gallus, et les prêtres de Cybèle celui de Galli. _5. Ovid. Fastor. l. 4, v. 361-6_, et _Stephan. au mot_ Γάλλος. Saint Jérôme, _comment. in Oseam., c. 4_, donne à ce mot une origine assez extraordinaire ; Gervasius Tilberiensis, qui dans ses _Otia Imperialia_, renchérit sur saint Jérôme, la rend tout-à-fait ridicule ; celle que donne Is. Vossius, _in Catul. Galliambum_, n'est guère plus raisonnable.
 
 *) _In Apollon. Argonautica, l. 1, v. 985._
 
-*) _Stephan._ à [GREC] dit [GREC] (_sub._ [GREC]) _mieux_ [GREC], selon Holstenius, [GREC], ou plutôt [GREC] : dans Vibius Sequester, _de montibus, Cybelus Phrygiæ_, Ovide dit _viridem Cybelem, Fastor. l. 4, v. 363_, parlant _de la montagne._
+*) _Stephan._ à Κυβέλεια dit ἔστι και Κύβελλα φρυγίας (_sub._ ὄρη) _mieux_ Κύβελα, selon Holstenius, ταὶ Κύβελον ἱερὸν, ou plutôt ὄρος : dans Vibius Sequester, _de montibus, Cybelus Phrygiæ_, Ovide dit _viridem Cybelem, Fastor. l. 4, v. 363_, parlant _de la montagne._
 
 *) _Marm. 1, epoch. 19..._ [GREC], sans contestation [GREC] pour le premier mot ; mais il y a deux opinions pour le mot précédent à suppléer, donc [GREC] est le régime. Palmerius, _pag. 205, Marmor. Arundel. 2, édit. 1732_, pense que ce mot est [GREC] ou [GREC], Marsham, _page 298_, est pour ce dernier ; Prideaux, _p. 396_, prétend même que cet [GREC] est la pierre transférée ensuite à Pessinonte ; mais Selden, _p. 134_, et Lydiat, _p. 241_, substituent [GREC]. Ce dernier sentiment aurait en sa faveur deux vers d'une épigramme anecdote de Dioscoride, poète qui vivait cent ans avant J. C., qu'Holsten _in Steph._ [GREC] rapporte [GREC].
 
