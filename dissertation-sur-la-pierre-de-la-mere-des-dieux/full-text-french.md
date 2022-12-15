@@ -219,7 +219,7 @@ Revenons enfin à la cause des ressemblances des pierres figurées : voici le se
 
 *) Déjà cité à la note sur Fracastor. Il est singulier que dans le _mus. Cospiano_, imprimé postérieurement en 1677 _in Bologna, in-fol._ on retient, _l. 2, c. 27_, l'opinion d'Aldrovandus.
 
-*) Ces lacs étaient appelés par les anciens [GREC]. _Voy. sur ces lacs ou lacunes Gassendi Phys. sect. 3, membr. 1, l. 3, c. 3._
+*) Ces lacs étaient appelés par les anciens λιμνοθάλαουαι, λίμναι θαλαστσώδεις. _Voy. sur ces lacs ou lacunes Gassendi Phys. sect. 3, membr. 1, l. 3, c. 3._
 
 Deux savants Naturalistes, M. Woodward, Anglois,* et M. Scheuchzer, Suisse,* ne rapportent la dispersion de toutes ces pierres qu'à l'inondation causée par le déluge universel : s'il ne faut que des autorités, ils en trouvent abondamment, Tertullien,* Orose, Cedrenus,* Glycas, _etc._ et presque tous les anciens auteurs Chrétiens, en parlant de ce phénomène, l'ont regardé comme une preuve démonstrative du déluge universel, laquelle subsisterait dans tous les siècles.
 
