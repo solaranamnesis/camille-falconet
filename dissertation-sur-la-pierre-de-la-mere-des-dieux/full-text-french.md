@@ -213,7 +213,7 @@ Rien de moins surprenant qu'un pareil miracle pour la Phrygie entièrement fanat
 
 *) In Pyth. Od. 3, v. 137.
 
-*) Je ne balance point à interpréter ainsi le λίθινον ἄγαλμα de ce texte, Μηρὸς Θεῶν ἄγαλμα λίθινον τοῖς ποσὶν ἐπερχὁμενον ; Hérodien s'est servi du mot ἄγαλμα dans le même sens. _Voyez ci-dessus ce que j'ai dit sur ἄγαλμα.
+*) Je ne balance point à interpréter ainsi le λίθινον ἄγαλμα de ce texte, Μηρὸς Θεῶν ἄγαλμα λίθινον τοῖς ποσὶν ἐπερχὁμενον ; Hérodien s'est servi du mot ἄγαλμα dans le même sens. Voyez ci-dessus ce que j'ai dit sur ἄγαλμα.
 
 Voici encore un fait nouveau : cette pierre, en différents lieux, a dû, selon leur situation, être entraînée par les torrents dans l'eau des rivières. Il est facile de reconnaître un véritable hystérolithe dans la pierre, que le Plutarque, auteur du livre des fleuves, dit se trouver dans le fleuve _Sagaris_ : _Il naît, dit-il, dans ce fleuve, une pierre sculptée naturellement qui porte la ressemblance de la mère des Dieux_.* Cette ressemblance ne peut être expliquée que par une configuration telle que celle que nous avons décrite : au reste ce fleuve _Sagaris_ se trouve fort mêlé dans tout ce qui regarde la mère des Dieux.*
 
