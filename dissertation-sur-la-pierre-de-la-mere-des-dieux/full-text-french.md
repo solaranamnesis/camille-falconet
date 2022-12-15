@@ -135,11 +135,11 @@ Que ne pourrais-je point ajouter sur Bérécynte,* sur Métropolis,* sur Cybèle
 Ἀυλοὶ τοῦ Φρυγὸς ἔργον Ὑάγνιδος, ἡνίκα Μητὴρ  
 Ἱερὰ ιἠνἐν Κυβέλοις πρῶιἠνἀνέδειξε Θεῶν.
 
-*) Dans Stephan. [GREC] comme [GREC] et [GREC] ; ce dernier possessif est employé par Nonnus _Dionysiac. lib. 48_, où on lit [GREC] et [GREC]. Ovide a appelé la Déesse _Cybeleia, Fastor. l. 4, v. 191._ Dans Diodore, _l. 5, c. 49_, ce nom a une origine bien différente : Cybèle, femme d'Iasion, avec son fils Corybas, et Dardanus (son beau-frère) passa en Phrygie et y porta les mystères de la Déesse, à laquelle elle donna son nom ; j'ajoute, et à la montagne aussi.
+*) Dans Stephan. Κυβέλη comme Κυβεληγενὴς et Κυβελίς ; ce dernier possessif est employé par Nonnus _Dionysiac. lib. 48_, où on lit Κυβεληίδες αὖραι et Κυβελίδος ποἰης. Ovide a appelé la Déesse _Cybeleia, Fastor. l. 4, v. 191._ Dans Diodore, _l. 5, c. 49_, ce nom a une origine bien différente : Cybèle, femme d'Iasion, avec son fils Corybas, et Dardanus (son beau-frère) passa en Phrygie et y porta les mystères de la Déesse, à laquelle elle donna son nom ; j'ajoute, et à la montagne aussi.
 
-*) _Dindymène_ dans Strabon, _l. 12, p. 862, édit. Bat. Sipylène_ dans les marbres d'Arondel, _marmor. lig. 61_, et sur les médailles : on pourrait dire aussi _Lobrine_ de la coline Lobrinus dont j'ai fait mention. [GREC], _Nicand. Alexipharm. vers. 7-8._
+*) _Dindymène_ dans Strabon, _l. 12, p. 862, édit. Bat. Sipylène_ dans les marbres d'Arondel, _marmor. lig. 61_, et sur les médailles : on pourrait dire aussi _Lobrine_ de la coline Lobrinus dont j'ai fait mention. Ῥεία Λοβρίνη, _Nicand. Alexipharm. vers. 7-8._
 
-*) Ainsi [GREC], _id est_, [GREC], pour [GREC] dans Hesych. _Voy. les notes sur ce mot et sur_ [GREC], _mais voyez surtout la note de Nic. Heins._ in Fastor. l. 4, v. 362.
+*) Ainsi Βερεκύντης Βρόμος, _id est_, ἀυλὸς, pour Βερεκυντικὸς dans Hesych. _Voy. les notes sur ce mot et sur_ Αἴγυπτον ὄμμα, _mais voyez surtout la note de Nic. Heins._ in Fastor. l. 4, v. 362.
 
 Enfin le mont Ida n'occuperait encore plus longtemps : c'est dans ce lieu si célèbre que Dardanus, si l'on en croit Diodore, porta de Samothrace les mystères de la Déesse,* et où son fils Idæus, selon Denys d'Halicarnasse, lui bâtit un temple. Cette époque de Dardanus pour le mont Ida, serait-elle plus ancienne que celle des marbres d'Arondel pour le mont Cybèle ? Il y aurait quelque raison* de le croire ; mais je n'oserais le décider. Il est bien plus de notre sujet d'observer, que dans le temple du mont Ida, la Déesse était adorée sous la figure d'un hystérolithe (il est désigné assez clairement par Claudien qui l'appelle _relligiosa silex_), et que, selon toutes les apparences, la pierre était tombée du Ciel comme celle de Pessinonte.
 
