@@ -121,7 +121,7 @@ _Muliebris oris clausus argento sedet.*_
 
 *) _Arnob. advers. Gentes_, lib. 7, pag. 253, édit. Batav. in-4°.
 
-*) Hymn. 10, [GREC], vers. 156-7.
+*) Hymn. 10, παρὶ στεφάνων, vers. 156-7.
 
 Les interprètes* de ce Poète ne disent rien de raison nable sur ce passage : le savant Cuper* lui-même paraît fort embarrassé de ces mots _muliebris oris_, parce qu'aucun d'eux n'a recours au passage d'Arnobe. Prudence nous apprend de plus qu'on avait enchâssé la pierre dans de l'argent, sans doute pour la rendre plus remarquable : il indique aussi la cérémonie où la Déesse était portée sur un char, par ces mots _evehendus essedo._
 
