@@ -78,7 +78,7 @@ Pour confirmer ce que nous avons dit sur le peu de volume de la pierre de la mè
 
 *) L. 12.
 
-Il semblerait que le mot de _simulacre_ indiquerait quelque ressemblance à la chose représentée ; mais on se tromperait : tout ce qui faisait l'objet de l'Idolâtrie dans ces premiers temps où elle devança la sculpture, quelque figure qu'il eût, portait le nom de _simulacre_, comme si ç'avoient été des statues. Les Celtes adoraient Jupiter* sous la forme d'un chêne : une souche, un tronc coupé à Thespies, et une planche* à Samos furent les premières idoles de Junon* ; Minerve, _inter Deos ergatas_, Ἀθήνη ἐργάνη, et Apollon, ἀγυιεὺς, étaient représentés par des pierres carrées ; Latone à Délos, Diane à Icare étaient des morceaux de bois informes ; la statue d'Apollon* à Delphes était une colonne ; et sept colonnes dans la Laconie représentaient les sept planètes : Castor et Pollux à Sparte étaient figurés par deux poutres parallèles, traversées près de leurs extrémités par deux autres. Selon Plutarque* qui décrit cette figure, Δόκανα était leur nom ; les Gémeaux sont ainsi désignés par les Astronomes, et cette figure a passé dans nos almanachs : une pierre pyramidale était la Vénus de Paphos* (on la voit sur les médailles) ; de simples pierres,* sans aucune figure particulière, étaient les idoles de l'Amour* à Thespies, et d'Hercule à Hyète : une pierre carrée* servait également et d'idole et d'autel aux Arabes ; ainsi que chez les Dymatiens* de la même nation, un autel tenait lieu de statue. Je pousserais cette énumération bien plus loin ; mais il me suffit de remarquer que les auteurs qui rapportent tous ces faits, emploient des mots de la même valeur que celui de _simulacre_, pour exprimer ces objets représentatifs d'une divinité avec laquelle ils n'avoient aucune ressemblance. Il semble que les premiers hommes regardaient comme impossible* de représenter des Dieux qui étaient invisibles.* C'est peut-être par cette raison que Clément Alexandrin dit qu'on se servait de colonnes, non comme d'une image, mais simplement comme d'un signe.* Nous n'avons donc rien à conclure sur la figure de la pierre de la mère des Dieux, des mots ἄγαλμα, ἀφίδρυμα, βρέτας, ξόανον, _simulacrum_, dont on s'est servi pour la désigner.
+Il semblerait que le mot de _simulacre_ indiquerait quelque ressemblance à la chose représentée ; mais on se tromperait : tout ce qui faisait l'objet de l'Idolâtrie dans ces premiers temps où elle devança la sculpture, quelque figure qu'il eût, portait le nom de _simulacre_, comme si ç'avoient été des statues. Les Celtes adoraient Jupiter* sous la forme d'un chêne : une souche, un tronc coupé à Thespies, et une planche* à Samos furent les premières idoles de Junon* ; Minerve, _inter Deos ergatas_, Ἀθήνη ἐργάνη, et Apollon,* ἀγυιεὺς, étaient représentés par des pierres carrées ; Latone à Délos,* Diane à Icare étaient des morceaux de bois informes ; la statue d'Apollon* à Delphes était une colonne* ; et sept colonnes dans la Laconie représentaient les sept planètes : Castor et Pollux à Sparte étaient figurés par deux poutres parallèles,* traversées près de leurs extrémités par deux autres. Selon Plutarque* qui décrit cette figure, Δόκανα était leur nom ; les Gémeaux sont ainsi désignés par les Astronomes, et cette figure a passé dans nos almanachs : une pierre pyramidale était la Vénus de Paphos* (on la voit sur les médailles) ; de simples pierres,* sans aucune figure particulière, étaient les idoles de l'Amour* à Thespies, et d'Hercule à Hyète : une pierre carrée* servait également et d'idole et d'autel aux Arabes ; ainsi que chez les Dymatiens* de la même nation, un autel tenait lieu de statue. Je pousserais cette énumération bien plus loin ; mais il me suffit de remarquer que les auteurs qui rapportent tous ces faits, emploient des mots de la même valeur que celui de _simulacre_, pour exprimer ces objets représentatifs d'une divinité avec laquelle ils n'avoient aucune ressemblance. Il semble que les premiers hommes regardaient comme impossible* de représenter des Dieux qui étaient invisibles.* C'est peut-être par cette raison que Clément Alexandrin dit qu'on se servait de colonnes, non comme d'une image, mais simplement comme d'un signe.* Nous n'avons donc rien à conclure sur la figure de la pierre de la mère des Dieux, des mots ἄγαλμα, ἀφίδρυμα, βρέτας, ξόανον, _simulacrum_, dont on s'est servi pour la désigner.
 
 *) Maxim. Tyr. Dissert. 38.
 
@@ -86,7 +86,15 @@ Il semblerait que le mot de _simulacre_ indiquerait quelque ressemblance à la c
 
 *) Maxim. Tyr. Dissert. 38. et Clem. Alexandr. Proc. c. 4.
 
+*) Pausan. liv. 8, c. 32.
+
+*) Athenée, l. 14, c. 1.
+
 *) Clem. Alexandr. Stromat. _liv. 1, chap. 24_, voyez aussi Pausanias Corinth. _liv. 2, chap. 9 et 29_, et Harpocration au mot Ἀγυιᾶς.
+
+*) Clem. Alexand. Protrept. c. 4.
+
+*) Pausan. Lacon. l. 3, c. 20.
 
 *) _Plut. initio libri_ πρὶ Φιλαδελφίας. M. Huet traduit δὁκανα par _trabalia, Animadvers. in Manil. pag. 82_, le P. Calmet _in Genes. c. 28_, lit mal δονάκια.
 
@@ -109,9 +117,11 @@ Il semblerait que le mot de _simulacre_ indiquerait quelque ressemblance à la c
 Arnobe, de tous les auteurs anciens qui sont parvenus jusqu'à nous, est le premier qui ait décrit cette pierre d'une manière à nous donner l'idée de sa figure, aussi-bien que de sa grandeur : la voici telle qu'on la voyait de son temps et qu'il l'a vue lui-même.* _Allatum ex Phrygia nihil quidem aliud... nisi lapis quidam non magnus, ferri manu hominis sine ulla impressione qui posset, coloris furvi atque atri, angellis prominentibus inæqualis, et quem omnes hodie ipso illo videmus in signo oris loco positum, indolatum et asperum, et simulacro faciem minus expressam simulatione præbentem_. On voit dans cette description une petite pierre qui peut être portée à la main sans faire sentir son poids, _ferri manu sine ulla impressione qui posset_ : cette pierre est noire, raboteuse, irrégulière par ses angles ; mais au milieu de cette irrégularité, elle montre une apparence de bouche ; et cette ressemblance, quoiqu'imparfaite, donne l'idée d'enchâsser la pierre dans le visage d'une statue pour y tenir lieu de bouche : j'ajoute et par-là cette statue devient celle de la divinité que l'on croit cachée sous la figure de la pierre. Tel est le sens que présente très-clairement, et sans équivoque, le texte d'Arnobe. Prudence, s'il était nécessaire, confirmerait cette interprétation dans deux vers qui eux-mêmes ont besoin du passage d'Arnobe pour être entendus.
 
 _Lapis nigellus evehendus essedo,_  
-_Muliebris oris clausus argento sedet._  
+_Muliebris oris clausus argento sedet.*_  
 
 *) _Arnob. advers. Gentes_, lib. 7, pag. 253, édit. Batav. in-4°.
+
+*) Hymn. 10, [GREC], vers. 156-7.
 
 Les interprètes* de ce Poète ne disent rien de raison nable sur ce passage : le savant Cuper* lui-même paraît fort embarrassé de ces mots _muliebris oris_, parce qu'aucun d'eux n'a recours au passage d'Arnobe. Prudence nous apprend de plus qu'on avait enchâssé la pierre dans de l'argent, sans doute pour la rendre plus remarquable : il indique aussi la cérémonie où la Déesse était portée sur un char, par ces mots _evehendus essedo._
 
