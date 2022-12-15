@@ -42,7 +42,7 @@ Revenons à Ovide : quand il serait plus digne de foi que Cicéron et Tite-Live,
 
 *) Sur la fin de mars, _6 calend. aprilis. Vibius Sequester de fluminibus_, au mot _Almon, Romæ ubi mater Deûm 6 calend. aprilis lavatur._ Pareille fête fut placée sur la fin de février dans le même calendrier sous le nom de _Lotio_ pour la déesse Pallas. _Voy. Ezéch. Spanheim ci-dessus._
 
-*) L. 48 de son histoire.
+*) 50. 48 de son histoire.
 
 *) Voyez l'histoire de Battacès ou Batabacès, prêtre de Cybèle, dans Plutarque _in Mario_ et dans les extraits de Photius _ex lib. 36 Diodori._
 
@@ -50,7 +50,7 @@ Vincent Cartari, dans son livre des images des Dieux,* a sans doute pris de la c
 
 *) _Seconda editione delle imagini de Gli Dei._ Padua, 1626, in-4°.
 
-*) L. 48 de son histoire. Pag. 1792.
+*) 50. 48 de son histoire. Pag. 1792.
 
 *) _Ibid._, p. 483-4.
 
@@ -74,9 +74,9 @@ Pour confirmer ce que nous avons dit sur le peu de volume de la pierre de la mè
 
 *) De raptu Proserpinæ, l. 1, vers. 202.
 
-*) L. 1, c. 2.
+*) 50. 1, c. 2.
 
-*) L. 12.
+*) 50. 12.
 
 Il semblerait que le mot de _simulacre_ indiquerait quelque ressemblance à la chose représentée ; mais on se tromperait : tout ce qui faisait l'objet de l'Idolâtrie dans ces premiers temps où elle devança la sculpture, quelque figure qu'il eût, portait le nom de _simulacre_, comme si ç'avoient été des statues. Les Celtes adoraient Jupiter* sous la forme d'un chêne : une souche, un tronc coupé à Thespies, et une planche* à Samos furent les premières idoles de Junon* ; Minerve, _inter Deos ergatas_, Ἀθήνη ἐργάνη, et Apollon,* ἀγυιεὺς, étaient représentés par des pierres carrées ; Latone à Délos,* Diane à Icare étaient des morceaux de bois informes ; la statue d'Apollon* à Delphes était une colonne* ; et sept colonnes dans la Laconie représentaient les sept planètes : Castor et Pollux à Sparte étaient figurés par deux poutres parallèles,* traversées près de leurs extrémités par deux autres. Selon Plutarque* qui décrit cette figure, Δόκανα était leur nom ; les Gémeaux sont ainsi désignés par les Astronomes, et cette figure a passé dans nos almanachs : une pierre pyramidale était la Vénus de Paphos* (on la voit sur les médailles) ; de simples pierres,* sans aucune figure particulière, étaient les idoles de l'Amour* à Thespies, et d'Hercule à Hyète : une pierre carrée* servait également et d'idole et d'autel aux Arabes ; ainsi que chez les Dymatiens* de la même nation, un autel tenait lieu de statue. Je pousserais cette énumération bien plus loin ; mais il me suffit de remarquer que les auteurs qui rapportent tous ces faits, emploient des mots de la même valeur que celui de _simulacre_, pour exprimer ces objets représentatifs d'une divinité avec laquelle ils n'avoient aucune ressemblance. Il semble que les premiers hommes regardaient comme impossible* de représenter des Dieux qui étaient invisibles.* C'est peut-être par cette raison que Clément Alexandrin dit qu'on se servait de colonnes, non comme d'une image, mais simplement comme d'un signe.* Nous n'avons donc rien à conclure sur la figure de la pierre de la mère des Dieux, des mots ἄγαλμα, ἀφίδρυμα, βρέτας, ξόανον, _simulacrum_, dont on s'est servi pour la désigner.
 
@@ -151,13 +151,13 @@ Rien ne convenait donc mieux à une divinité regardée comme la Nature même, q
 
 Je trouve dans un monument rapporté par Pausanias, une épithète très-convenable à la qualité de mère. Cet* auteur dit que, sur le mont Sipyle, il y avait un temple de la mère Plastène : je rendrais volontiers ce mot par le _fabricator_ de St. Iréné, ou le ποιητὴς de St Epiphane. Kuhnius, dernier éditeur de Pausanias, ne fait aucune remarque sur ce mot oublié par tous les lexicographes : rien de plus naturel que sa formation, πλαστήνη de πλαστὴς, comme πθήνη de πτθός, _etc._
 
-*) _L. 5, c. 13_, ἐν τῇ κορυφῇ τοῦ ὄρους (Σιπὑζου) τῆς Πλαστήνς Μηρὸς τὸ ἱερόν.
+*) _50. 5, c. 13_, ἐν τῇ κορυφῇ τοῦ ὄρους (Σιπὑζου) τῆς Πλαστήνς Μηρὸς τὸ ἱερόν.
 
 A l'occasion du mont Sipyle,* nom que portait aussi la ville voisine, je me contenterai de dire que c'était sur cette montagne où le même Pausanias dit ailleurs,* qu'on voyait la plus ancienne statue de la Déesse, celle apparemment du temple dont je viens de parler d'après lui, quoiqu'il ne le dise pas. J'ajouterai un fait du nombre des faits merveilleux qui sont la matière d'un traité attribué à Aristote.* Près du mont Sipyle il se forme une pierre qui donne la piété et l'amour des fils pour leur père à ceux qui, l'ayant trouvée, la portent au temple de la Déesse ; je soupçonnerais que ce serait un hystérolithe, si le texte, peut-être corrompu, ne lui donnait une figure cylindrique.
 
 *) Tantalis, Sipyle et trois autres villes bâties successivement au même lieu, toutes cinq abîmées par des tremblemens de terre. _Voy. Pline, liv. 5, chap. 29_. Magnésie, qui prit ensuite leur place, fut très-fort endommagée par les tremblemens suivans. Le mont Sipyle et Magnésie sont près de Smyrne vers l'embouchure de l'Hermus ; Cellarius, _geograph. antiq._ se méprend très-fort quand il les place presque à la source de ce fleuve dans sa carte de l'Asie mineure.
 
-*) L. 3. c. 22.
+*) 50. 3. c. 22.
 
 *) Περὶ θαυμασίων ἀκουσμάτων, _p. 135 de l'édit. de H. Étienne, 1557, in-8°. Fabric. bibl. Gr. t. 1, p. 145_, croit ce traité de Palæphatus Abydenus, ami d'Aristote.
 
@@ -197,7 +197,7 @@ Que ne pourrais-je point ajouter sur Bérécynte,* sur Métropolis,* sur Cybèle
 
 Enfin le mont Ida n'occuperait encore plus longtemps : c'est dans ce lieu si célèbre que Dardanus, si l'on en croit Diodore,* porta de Samothrace les mystères de la Déesse,* et où son fils Idæus, selon Denys d'Halicarnasse,* lui bâtit un temple. Cette époque de Dardanus pour le mont Ida, serait-elle plus ancienne que celle des marbres d'Arondel pour le mont Cybèle ? Il y aurait quelque raison* de le croire ; mais je n'oserais le décider. Il est bien plus de notre sujet d'observer, que dans le temple du mont Ida, la Déesse était adorée sous la figure d'un hystérolithe (il est désigné assez clairement par Claudien qui l'appelle _relligiosa silex_), et que, selon toutes les apparences, la pierre était tombée du Ciel* comme celle de Pessinonte.
 
-*) L. 5, c. 48-9.
+*) 50. 5, c. 48-9.
 
 *) Dardanus porta aussi de Samothrace en Phrygie les Dieux Pénates, selon Denys d'Halicarn. _lib. 1, pag. 55, édit. Francof._ et selon Varron, _vid. Macrob. Saturn. lib. 3, cap. 4._
 
@@ -243,11 +243,11 @@ Pour ne rien oublier de ce qu'il y a de plus curieux à dire et de moins connu s
 
 *) _Admiranda Ethnic. theologiæ mysteria_ ; _Monach. 1626, in-4°. c. 42, p. 171._ Nous avons dit plus haut, dans une note sur les vers de Prudence, que Carol. Neapolis a regardé la pierre de la mère des Dieux comme un aimant.
 
-*) L. 28, c. 2.
+*) 50. 28, c. 2.
 
-*) L. 1, c. 68-9.
+*) 50. 1, c. 68-9.
 
-*) L. 3, c. 3.
+*) 50. 3, c. 3.
 
 *) _Clem. Alexandr. Protreptic._ suivi par Arnob. _advers. Gent. l. 4._ Méziriac, commentaire sur l'épître de Pénélope à Ulysse, a rassemblé tout ce qui a été dit du Palladium.
 
@@ -339,7 +339,7 @@ Les hystérolithes se sont trouvés dans le même cas que le _cornu ammonis_ et 
 
 *) _De natura fossil. l. 5, pag. 263_, édit. Basil. 1546, in-fol.
 
-*) L. 37, c. 10.
+*) 50. 37, c. 10.
 
 *) De subtilitate sub finem, l. 7.
 
@@ -347,7 +347,7 @@ Les hystérolithes se sont trouvés dans le même cas que le _cornu ammonis_ et 
 
 *) De lapidib. lib. 2, cap. 225.
 
-*) C. 13, p. 83.
+*) 100. 13, p. 83.
 
 *) Voyez surtout la planche _p. 221, Ephemerid. natur. curios. centur. 3, observat. 88._
 
