@@ -149,7 +149,7 @@ Rien ne convenait donc mieux à une divinité regardée comme la Nature même, q
 
 *) M. de la Condamine, dans sa relation de la rivière des Amazones, _p. 56_, observe que les mots _Abba_ ou _Papa_ et _Mama_ sont communs à un grand nombre de nations d'Amérique, quoique leur langage soit d'ailleurs très-différent.
 
-Je trouve dans un monument rapporté par Pausanias, une épithète très-convenable à la qualité de mère. Cet* auteur dit que, sur le mont Sipyle, il y avait un temple de la mère Plastène : je rendrais volontiers ce mot par le _fabricator_ de St. Iréné, ou le ποιητὴς de St Epiphane. Kuhnius, dernier éditeur de Pausanias, ne fait aucune remarque sur ce mot oublié par tous les lexicographes : rien de plus naturel que sa formation, πλαστήνη de πλαστὴς, comme πθήνη de πτθός, _etc._
+Je trouve dans un monument rapporté par Pausanias, une épithète très-convenable à la qualité de mère. Cet* auteur dit que, sur le mont Sipyle, il y avait un temple de la mère Plastène : je rendrais volontiers ce mot par le _fabricator_ de St. Iréné, ou le ποιητὴς de St. Epiphane. Kuhnius, dernier éditeur de Pausanias, ne fait aucune remarque sur ce mot oublié par tous les lexicographes : rien de plus naturel que sa formation, πλαστήνη de πλαστὴς, comme πθήνη de πτθός, _etc._
 
 *) _50. 5, c. 13_, ἐν τῇ κορυφῇ τοῦ ὄρους (Σιπὑζου) τῆς Πλαστήνς Μηρὸς τὸ ἱερόν.
 
