@@ -14,7 +14,7 @@ Voici d'abord ce que* dit le faux Orphée : Apollon donna au Troyen Helenus le v
 
 *) C'est ainsi qu'il faut lire, et non Σιδηρίπς, qu'on lit dans le texte : le génitif Σιδηρῖταο qui se trouvé au ver 46e. détermine la vraie leçon.
 
-*) Αμφὶ δέ μιν κύκλω πρί τ᾽ ἀμφί τε πανθοτεν ἶνες Εῗκελοι ῥυτίδεαπ ἐπιχάβδην ταvύοvται. v. 20. et 21.
+*) Αμφὶ δέ μιν κύκλω πρί τ' ἀμφί τε πανθοτεν ἶνες Εῗκελοι ῥυτίδεαπ ἐπιχάβδην ταvύοvται. v. 20. et 21.
 
 J'ai honte de vous rapporter de pareilles fadaises ; quel autre nom donner à cela ? Mais Photius cet Écrivain grave et judicieux, n'a pas dédaigné de nous en conserver de la même force, dans son extrait de la Vie d'Isidore par Damascius. La ressemblance de ce que je trouvé touchant les _Bætyles_ dans cet extrait, avec ce que je viens de citer d'Orphée, m'engage à rapporter ici tout de suite ce que dit Photius ; quoique depuis Orphée, beaucoup d'autres Auteurs plus anciens que Photius, ayant fait mention de ces Pierres fabuleuses.
 
@@ -76,7 +76,7 @@ Eusèbe dans les fragments qu'il nous a conservez de cet Auteur Phénicien, dit*
 
 Le reste des anciens Auteurs qui parlent du _Bætyle_, comme Priscien le Grammairien, l'Auteur de l'Étymologicon et Hésychius, n'en donnent guéres d'autre notion, que comme de la pierre qu'avala Saturne. Hésychius* n'en dit que cela précisément ; ce qui a donné occasion au proverbe contre les gens voraces : _vous avaleriez même un Bætyle_.*
 
-*) Au mot Βαίτυλοσ, οὕτως ἐκαλοῖτο ὁ δοθεῖς λίθος τῳρ Κρόνῳ αἰπ᾽ Διός.
+*) Au mot Βαίτυλοσ, οὕτως ἐκαλοῖτο ὁ δοθεῖς λίθος τῳρ Κρόνῳ αἰπ' Διός.
 
 *) Καὶ Βαίτυλον αὒ καταπίνοισ, Erasme Adag. Chil. 4. centur. 2. Je ne çay d'où il a pris ce proverbe.
 
@@ -250,7 +250,7 @@ Pline* nous parle de la Pierre _Astroitès_, dont il dit que Zoroastre célébr�
 
 *) _Natur. Histor._ lib. 37. c. 9.
 
-*) Ἡνἰκα δ᾽ ἐρχόμενον πρόσγειον δαἱμον᾽ ἀθρήσης Θῦε λίθον, Μνίζουρα ἐπαυδὢν.
+*) Ἡνἰκα δ' ἐρχόμενον πρόσγειον δαἱμον' ἀθρήσης Θῦε λίθον, Μνίζουρα ἐπαυδὢν.
 
 *) S. 17. Ὲκαθάρθη τῇ Κεραυνία λίθω.
 
